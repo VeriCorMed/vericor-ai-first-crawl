@@ -1,0 +1,8 @@
+# Tag: Emergency Preparedness Products
+Posted on [September 20, 2016October 28, 2024](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Healthcare Emergency Preparedness Requirements](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Healthcare providers, local health departments, emergency management agencies and healthcare coalitions are all affected by the recent publication of the “Final Emergency Preparedness Rule” by the CMS. Haven’t seen it yet? The Federal Register webpage is here (09/16/2016 official document). Now is the time to strengthen your emergency preparedness plan for both natural and man-made disasters. [Read More](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Emergency Preparedness Products](https://www.vericormed.com/tag/emergency-preparedness-products/), [Final Emergency Preparedness Rule](https://www.vericormed.com/tag/final-emergency-preparedness-rule/), [Hospital Preparedness Program](https://www.vericormed.com/tag/hospital-preparedness-program/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

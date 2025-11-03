@@ -1,0 +1,1 @@
+![](https://www.vericormed.com/wp-content/uploads/2017/12/temp-shield-insulation-system-of-cool-cube-08-complete-set-cc-vip-08.png)

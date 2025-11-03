@@ -1,0 +1,8 @@
+# Tag: Back in Stock
+Posted on [December 29, 2022](https://www.vericormed.com/cool-cube-pcm-coolers-back-in-stock-system-training/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Cool Cube­™ PCM Coolers | Back in Stock | System Training](https://www.vericormed.com/cool-cube-pcm-coolers-back-in-stock-system-training/)
+![Cool Cube PCM Coolers 2023](https://www.vericormed.com/wp-content/uploads/2022/12/Cool-Cube-PCM-Coolers-2023-300x300.png) In this Bi-Weekly Issue In this biweekly issue: 📅 The History...and Future 🆒 This Just In... 🦺 RF System Training 🛌 Alternate Care Site As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) Cool Cube­™ PCM Coolers The History...and Future! 2009: vaccine "transporter" [Read More](https://www.vericormed.com/cool-cube-pcm-coolers-back-in-stock-system-training/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Alternate Care Site](https://www.vericormed.com/tag/alternate-care-site/), [Back in Stock](https://www.vericormed.com/tag/back-in-stock/), [Cool Cube™ PCM Coolers](https://www.vericormed.com/tag/cool-cube-pcm-coolers/), [Response-Friendly™ System Training](https://www.vericormed.com/tag/response-friendly-system-training/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

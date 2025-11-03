@@ -1,0 +1,36 @@
+# Category: Public Health
+Posted on [October 31, 2016March 29, 2017](https://www.vericormed.com/new-colorimproved-featuresfast-delivery/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [New Color~Improved Features~Fast Delivery](https://www.vericormed.com/new-colorimproved-featuresfast-delivery/)
+At VeriCor, we want to continually improve the experience for customers like you. Here is what to expect with the best, most advanced line of Cool Cubes™ ever:A portable, qualified container and pack-out system that keeps temperature sensitive product (vaccine, medicine, blood, etc.) at the appropriate temperature (fridge, frozen, or room) for an extended period [Read More](https://www.vericormed.com/new-colorimproved-featuresfast-delivery/)
+Categories: [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/)
+Posted on [October 26, 2016October 31, 2016](https://www.vericormed.com/newest-line-cool-cubes/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [The Newest Line of Cool Cubes™](https://www.vericormed.com/newest-line-cool-cubes/)
+VeriCor Introduces the newest line of Cool Cubes™ — The Cold Chain’s Best, Most Advanced Coolers EverIncluding a vibrant new color, more pockets and many other user-friendly features.HOLMEN, WI – October 25, 2016 – VeriCor, LLC, the global producer of Response-Friendly™ Systems, Products and Services, today introduced the best, most advanced line of Cool Cubes™ [Read More](https://www.vericormed.com/newest-line-cool-cubes/)
+Categories: [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/)
+Posted on [September 20, 2016October 28, 2024](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Healthcare Emergency Preparedness Requirements](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Healthcare providers, local health departments, emergency management agencies and healthcare coalitions are all affected by the recent publication of the “Final Emergency Preparedness Rule” by the CMS. Haven’t seen it yet? The Federal Register webpage is here (09/16/2016 official document). Now is the time to strengthen your emergency preparedness plan for both natural and man-made disasters. [Read More](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Emergency Preparedness Products](https://www.vericormed.com/tag/emergency-preparedness-products/), [Final Emergency Preparedness Rule](https://www.vericormed.com/tag/final-emergency-preparedness-rule/), [Hospital Preparedness Program](https://www.vericormed.com/tag/hospital-preparedness-program/)
+Posted on [July 29, 2016](https://www.vericormed.com/hpp-phep-funds-vanish-soon-act-now/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [HPP-PHEP Funds Vanish Soon. Act Now!](https://www.vericormed.com/hpp-phep-funds-vanish-soon-act-now/)
+There are only 332 days left to spend HPP-PHEP project funds…even carryover dollars. Your health department, tribe, healthcare coalition or facility must meet specific requirements at the end of this 5-year project. What preparedness product(s) will help achieve project success? Top HPP-PHEP Product Lines # Description Purpose 1 Cool Cube™ Coolers Vaccine Transport 2 Data [Read More](https://www.vericormed.com/hpp-phep-funds-vanish-soon-act-now/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [Alternate Care Site Modules](https://www.vericormed.com/tag/alternate-care-site-modules/), [Cool Cube™ Coolers](https://www.vericormed.com/tag/cool-cube-coolers/), [Data Loggers](https://www.vericormed.com/tag/data-loggers/), [Ebola Kits](https://www.vericormed.com/tag/ebola-kits/), [health department](https://www.vericormed.com/tag/health-department/), [healthcare coalition](https://www.vericormed.com/tag/healthcare-coalition/), [HPP-PHEP](https://www.vericormed.com/tag/hpp-phep/), [MedKits](https://www.vericormed.com/tag/medkits/), [Mobile Incident Command Centers](https://www.vericormed.com/tag/mobile-incident-command-centers/), [Organizers/Cases](https://www.vericormed.com/tag/organizerscases/), [Response Trailers](https://www.vericormed.com/tag/response-trailers/), [Triage & Treatment Modules](https://www.vericormed.com/tag/triage-treatment-modules/), [Vaccination Systems](https://www.vericormed.com/tag/vaccination-systems/)
+Posted on [July 25, 2016October 28, 2024](https://www.vericormed.com/cdc-guidelines-2016/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [CDC Guidelines 2016](https://www.vericormed.com/cdc-guidelines-2016/)
+2016 CDC Vaccine Storage & Handling Toolkit – Top 10 Notables in the 2016 CDC Guidelines ***JUNE 2016 TOOLKIT DOWNLOAD*** The Centers for Disease Control and Prevention (CDC) recently released the 2016 Vaccine Storage & Handling Toolkit, their first since May 2014. Here are the top 10 notables for Public Health Departments: Store refrigerated vaccine between [Read More](https://www.vericormed.com/cdc-guidelines-2016/)
+Categories: [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [2016 CDC Guildelines](https://www.vericormed.com/tag/2016-cdc-guildelines/), [CDC](https://www.vericormed.com/tag/cdc/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [coolers](https://www.vericormed.com/tag/coolers/), [handling](https://www.vericormed.com/tag/handling/), [storage](https://www.vericormed.com/tag/storage/), [transporting](https://www.vericormed.com/tag/transporting/), [vaccine safety](https://www.vericormed.com/tag/vaccine-safety/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/category/public-health/page/55/)
+  * [1](https://www.vericormed.com/category/public-health/)
+  * …
+  * [55](https://www.vericormed.com/category/public-health/page/55/)
+  * 56
+  * [57](https://www.vericormed.com/category/public-health/page/57/)
+  * …
+  * [59](https://www.vericormed.com/category/public-health/page/59/)
+  * [Next](https://www.vericormed.com/category/public-health/page/57/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

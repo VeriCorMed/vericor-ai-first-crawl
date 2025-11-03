@@ -1,0 +1,8 @@
+# Tag: Supplies Organized
+Posted on [June 2, 2022](https://www.vericormed.com/june-control-the-temperature-mobile-patient-beds/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [June | Control the Temperature | Mobile Patient Beds](https://www.vericormed.com/june-control-the-temperature-mobile-patient-beds/)
+In this Bi-Weekly Issue In this biweekly issue: 🌻 June 🆒 Control the Temperature 🛌 Foldable/Mobile Patient Beds ⚕ Organized & Ready Supplies As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) June Birds just waking up to sing as nighttime slips away, [Read More](https://www.vericormed.com/june-control-the-temperature-mobile-patient-beds/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [care-specific medical kits](https://www.vericormed.com/tag/care-specific-medical-kits/), [Control the Temperature](https://www.vericormed.com/tag/control-the-temperature/), [Cool Cube™ PCM Cooler](https://www.vericormed.com/tag/cool-cube-pcm-cooler/), [MedKits](https://www.vericormed.com/tag/medkits/), [Mobile Patient Beds](https://www.vericormed.com/tag/mobile-patient-beds/), [Supplies Organized](https://www.vericormed.com/tag/supplies-organized/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

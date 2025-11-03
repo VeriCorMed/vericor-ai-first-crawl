@@ -1,0 +1,8 @@
+# Tag: No excursions for days
+Posted on [August 9, 2017August 9, 2017](https://www.vericormed.com/cool-cubes-response-friendly-acs-mobile-er-system/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Cool Cubes™ | Response-Friendly® ACS | Mobile ER System](https://www.vericormed.com/cool-cubes-response-friendly-acs-mobile-er-system/)
+Cool Cubes™A 2 Min. Video That Changes ThingsNo ice! No electricity! No excursions for days!It’s only a matter of time that this technology will be mandatory when transporting temperature sensitive product (vaccine, blood, medicine). Click to the right to watch the 2-minute video about how Cool Cubes™ work, or click below to learn more about [Read More](https://www.vericormed.com/cool-cubes-response-friendly-acs-mobile-er-system/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cubes](https://www.vericormed.com/tag/cool-cubes/), [Mobile ER System](https://www.vericormed.com/tag/mobile-er-system/), [No electricity](https://www.vericormed.com/tag/no-electricity/), [No excursions for days](https://www.vericormed.com/tag/no-excursions-for-days/), [No ice](https://www.vericormed.com/tag/no-ice/), [Response-Friendly](https://www.vericormed.com/tag/response-friendly/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

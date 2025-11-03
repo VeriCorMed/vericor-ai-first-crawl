@@ -1,0 +1,9 @@
+# Tag: Hospital Incident Commnad Station
+Posted on [July 4, 2018October 28, 2024](https://www.vericormed.com/cool-cube-faq-command-control-ep-supply-trailers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Cool Cube™ FAQ | Command & Control | EP Supply Trailers](https://www.vericormed.com/cool-cube-faq-command-control-ep-supply-trailers/)
+![The-Cool-Cube-Advantage](https://www.vericormed.com/wp-content/uploads/2018/07/the-cool-cube-advantage-300x200.jpg)
+Cool Cube™ FAQA Question from Your ColleaguesQuestion: How are these different than the ice/Igloo combination I use now?Answer: This short 2-minute video (click here) explains it well. But if you don’t have two minutes, here it is in brief…Ice and off-the-shelf coolers are for chilling beverages, not managing critical temperatures for life-saving products. Ice melts at [Read More](https://www.vericormed.com/cool-cube-faq-command-control-ep-supply-trailers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Command & Control](https://www.vericormed.com/tag/command-control/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [EP Supply Trailers](https://www.vericormed.com/tag/ep-supply-trailers/), [FAQ](https://www.vericormed.com/tag/faq/), [Hospital Incident Commnad Station](https://www.vericormed.com/tag/hospital-incident-commnad-station/), [Mass Casualty Responses](https://www.vericormed.com/tag/mass-casualty-responses/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

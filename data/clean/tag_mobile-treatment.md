@@ -1,0 +1,9 @@
+# Tag: Mobile Treatment
+Posted on [November 8, 2017June 2, 2020](https://www.vericormed.com/burn-care-kit-upgrade-cold-chain-ep-response-trailers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Burn Care Kit | Upgrade the Cold Chain | EP Response Trailers](https://www.vericormed.com/burn-care-kit-upgrade-cold-chain-ep-response-trailers/)
+![Burn Care Surge On-Site Patient Treatment](https://www.vericormed.com/wp-content/uploads/2017/08/Burn-Care-Surge-On-Site-Patient-Treatment-300x200.jpg)
+Burn Care Kit Prepackaged Mobile Treatment Burn care is a priority within ASPR’s 2017-2022 Health Care Preparedness and Response Capabilities. Page 52 – Activity 6 states, “All hospitals should be prepared to receive, stabilize, and manage burn patients.” The Response-Friendly® Burn Care MedKit is a simple, comprehensive medical kit with a small storage footprint yet [Read More](https://www.vericormed.com/burn-care-kit-upgrade-cold-chain-ep-response-trailers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Burn Care Kit](https://www.vericormed.com/tag/burn-care-kit/), [Cold Chain](https://www.vericormed.com/tag/cold-chain/), [EP Response Trailers](https://www.vericormed.com/tag/ep-response-trailers/), [Health Care Preparedness](https://www.vericormed.com/tag/health-care-preparedness/), [MCI Incident Management](https://www.vericormed.com/tag/mci-incident-management/), [Mobile Treatment](https://www.vericormed.com/tag/mobile-treatment/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

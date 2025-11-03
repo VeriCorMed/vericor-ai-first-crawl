@@ -1,0 +1,9 @@
+# Tag: Flexible Pack-Out
+Posted on [July 11, 2017October 28, 2024](https://www.vericormed.com/flexible-pack-mobile-hics-cart-ep-response-trailers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Flexible Pack-Out | Mobile HICS Cart | EP Response Trailers](https://www.vericormed.com/flexible-pack-mobile-hics-cart-ep-response-trailers/)
+![Incident Response Trailers Mobile Emergency Management](https://www.vericormed.com/wp-content/uploads/2017/04/Incident-Response-Trailers-Mobile-Emergency-Management-300x200.jpg)
+Flexible Pack-OutIncrease Capacity / Decrease WeightCool Cubes™ have remarkable insulation. Because of this fact, many customers choose not to utilize all six 4°C cooling panels. For instance, the VT-100 will hold a 2-8°C range for a lab validated 76+ hours with all the panels surrounding the payload. That same unit packed out with only one [Read More](https://www.vericormed.com/flexible-pack-mobile-hics-cart-ep-response-trailers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cubes](https://www.vericormed.com/tag/cool-cubes/), [EP Response Trailers](https://www.vericormed.com/tag/ep-response-trailers/), [Flexible Pack-Out](https://www.vericormed.com/tag/flexible-pack-out/), [Hospital Incident Command Center](https://www.vericormed.com/tag/hospital-incident-command-center/), [MCI Incident Management](https://www.vericormed.com/tag/mci-incident-management/), [Mobile HICS Cart](https://www.vericormed.com/tag/mobile-hics-cart/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

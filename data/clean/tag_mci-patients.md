@@ -1,0 +1,9 @@
+# Tag: MCI Patients
+Posted on [November 21, 2018October 28, 2024](https://www.vericormed.com/beds-for-a-surge-response-cool-cube-faq-mitigate-the-disruption/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Beds for a Surge Response | Cool Cube™ FAQ | Mitigate the Disruption](https://www.vericormed.com/beds-for-a-surge-response-cool-cube-faq-mitigate-the-disruption/)
+![Beds-for-a-Surge-Response](https://www.vericormed.com/wp-content/uploads/2018/11/Beds-for-a-Surge-Response-300x200.jpg)
+Beds for a Surge ResponseCompact Storage-Quick DeploymentWhen planning for a patient surge, quality medical beds are one of the top priorities. VeriCor Response Beds are ideal for fixed hospitals, alternate care sites, or any place there is a care/rest need. They meet FEMA guidelines (plus ADA compliance standards) and can be folded for easy storage. [Read More](https://www.vericormed.com/beds-for-a-surge-response-cool-cube-faq-mitigate-the-disruption/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Beds](https://www.vericormed.com/tag/beds/), [Cool Cube™ FAQ](https://www.vericormed.com/tag/cool-cube-faq/), [FEMA](https://www.vericormed.com/tag/fema/), [Mass casualty incidences](https://www.vericormed.com/tag/mass-casualty-incidences/), [MCI Patients](https://www.vericormed.com/tag/mci-patients/), [Surge Response Surge Response](https://www.vericormed.com/tag/surge-response-surge-response/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

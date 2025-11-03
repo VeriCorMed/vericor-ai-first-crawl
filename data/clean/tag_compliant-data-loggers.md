@@ -1,0 +1,9 @@
+# Tag: Compliant Data Loggers
+Posted on [June 20, 2018October 28, 2024](https://www.vericormed.com/compliant-data-loggers-cool-cube-faq-mobile-emergency-room/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Compliant Data Loggers | Cool Cube™ FAQ | Mobile Emergency Room](https://www.vericormed.com/compliant-data-loggers-cool-cube-faq-mobile-emergency-room/)
+![Compliant Data Loggers](https://www.vericormed.com/wp-content/uploads/2017/11/Compliant-Data-Loggers-300x200.jpg)
+Compliant Data LoggersModels: Basic to Wi-FiAs the guidelines for monitoring temperature sensitive product become more and more stringent, an emphasis is being placed on data loggers and the ability to create a detailed record of the storage environment when needed. VeriCor carries a variety of loggers that are CDC/FDA compliant. Need help choosing? Use the [Read More](https://www.vericormed.com/compliant-data-loggers-cool-cube-faq-mobile-emergency-room/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [CDC/FDA compliant](https://www.vericormed.com/tag/cdc-fda-compliant/), [Compliant Data Loggers](https://www.vericormed.com/tag/compliant-data-loggers/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Golden Hour](https://www.vericormed.com/tag/golden-hour/), [Health Care Coalition Prep](https://www.vericormed.com/tag/health-care-coalition-prep/), [Mobile Emergency Room](https://www.vericormed.com/tag/mobile-emergency-room/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

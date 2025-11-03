@@ -1,0 +1,8 @@
+# Tag: Protective Bag
+Posted on [February 22, 2017July 15, 2024](https://www.vericormed.com/umo-ultimate-medical-organizer-supplies/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [An UMO …the ultimate medical organizer for supplies](https://www.vericormed.com/umo-ultimate-medical-organizer-supplies/)
+Every VA medical center* has two of these. What is it and what can it do for you?An “UMO” (Upright Medical Organizer) is a medical roll pack used to organize supplies. When hung vertically, it provides rapid, easy access to medical supplies utilizing clear, partitioned pockets. When rolled up (for storage or transport), it provides [Read More](https://www.vericormed.com/umo-ultimate-medical-organizer-supplies/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [BUMO](https://www.vericormed.com/tag/bumo/), [Hospital Incident Command Center](https://www.vericormed.com/tag/hospital-incident-command-center/), [medical organizer](https://www.vericormed.com/tag/medical-organizer/), [MedKits](https://www.vericormed.com/tag/medkits/), [Protective Bag](https://www.vericormed.com/tag/protective-bag/), [Qualified Cold Chain Management System](https://www.vericormed.com/tag/qualified-cold-chain-management-system/), [SUMO](https://www.vericormed.com/tag/sumo/), [UMO](https://www.vericormed.com/tag/umo/), [UMO Spec Sheet](https://www.vericormed.com/tag/umo-spec-sheet/), [UMO Stand](https://www.vericormed.com/tag/umo-stand/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

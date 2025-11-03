@@ -1,0 +1,8 @@
+# Tag: Back Order Items
+Posted on [November 18, 2020](https://www.vericormed.com/back-order-items-a-cdc-toolkit-hics-station/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Back Order Items | A CDC Toolkit | HICS Station](https://www.vericormed.com/back-order-items-a-cdc-toolkit-hics-station/)
+In this Bi-Weekly Issue In this biweekly issue: 🦠 Back Order Items 🆒 Qualified Container & Packout 🏥 HICS Station 🌪 Equip/Supply Cases As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) Back Order Items Working extra hard to get you the coolers [Read More](https://www.vericormed.com/back-order-items-a-cdc-toolkit-hics-station/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [A CDC Toolkit](https://www.vericormed.com/tag/a-cdc-toolkit/), [Back Order Items](https://www.vericormed.com/tag/back-order-items/), [Hospital Incident Command System Station](https://www.vericormed.com/tag/hospital-incident-command-system-station/), [Preparedness Equipment](https://www.vericormed.com/tag/preparedness-equipment/), [Qualified Container and Packout](https://www.vericormed.com/tag/qualified-container-and-packout/), [Supply Cases](https://www.vericormed.com/tag/supply-cases/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

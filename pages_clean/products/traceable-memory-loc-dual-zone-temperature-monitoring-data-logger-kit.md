@@ -1,0 +1,167 @@
+---
+id: 4526
+slug: traceable-memory-loc-dual-zone-temperature-monitoring-data-logger-kit
+title: Memory-Loc™ Dual Zone Temp Monitoring & Data Logger Kit
+status: publish
+type: simple
+sku: TM-6441
+price: '229'
+regular_price: '229'
+sale_price: ''
+stock_status: instock
+stock_quantity: 10000
+weight: '1.8'
+dimensions:
+  length: '12'
+  width: '4'
+  height: '4'
+shipping_class: {}
+categories:
+- Temperature Monitoring Devices
+tags:
+- Certified Traceable Thermometer
+- data logger
+- Dual Probe
+- Dual Zone
+- temperature monitoring
+- Thermometer
+- tm-6440
+- traceable thermometer
+related:
+- id: 5076
+  name: Excursion-Trac™ Dual Zone Temp Monitoring & Data Logger Kit
+  slug: product-dual-zone-data-logger-clearable-memory-tm-6431
+  url: https://www.vericormed.com/product/product-dual-zone-data-logger-clearable-memory-tm-6431/
+- id: 3492
+  name: Memory-Loc™ Temperature Monitoring & Data Logger Kit
+  slug: traceable-memory-loc-temperature-monitoring-and-data-logger-kit-tm-6440
+  url: https://www.vericormed.com/product/traceable-memory-loc-temperature-monitoring-and-data-logger-kit-tm-6440/
+- id: 5072
+  name: Excursion-Trac™ Temperature Monitoring & Data Logger Kit
+  slug: traceable-excursion-trac-temperature-monitoring-data-logger-kit-tm-6430
+  url: https://www.vericormed.com/product/traceable-excursion-trac-temperature-monitoring-data-logger-kit-tm-6430/
+- id: 122197
+  name: Traceable® Fridge/Freezer Temperature Monitoring Kit
+  slug: traceable-temperature-monitoring-kit-tm-5650
+  url: https://www.vericormed.com/product/traceable-temperature-monitoring-kit-tm-5650/
+- id: 5082
+  name: Dual Zone Temperature Monitoring & Data Logger Kit
+  slug: traceablelive-dual-zone-temperature-monitoring-data-logger-kit-tm-6500
+  url: https://www.vericormed.com/product/traceablelive-dual-zone-temperature-monitoring-data-logger-kit-tm-6500/
+upsells:
+- id: 3371
+  name: Cool Cube™ 08 at Lab Freezer Temps
+  slug: cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08
+  url: https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/
+- id: 3365
+  name: Cool Cube™ 08 at Refrigerator Temps
+  slug: cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerator-temperatures-fresh-vaccine-vt-08
+  url: https://www.vericormed.com/product/cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerator-temperatures-fresh-vaccine-vt-08/
+- id: 3492
+  name: Memory-Loc™ Temperature Monitoring & Data Logger Kit
+  slug: traceable-memory-loc-temperature-monitoring-and-data-logger-kit-tm-6440
+  url: https://www.vericormed.com/product/traceable-memory-loc-temperature-monitoring-and-data-logger-kit-tm-6440/
+cross_sells:
+- id: 3371
+  name: Cool Cube™ 08 at Lab Freezer Temps
+  slug: cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08
+  url: https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/
+- id: 3365
+  name: Cool Cube™ 08 at Refrigerator Temps
+  slug: cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerator-temperatures-fresh-vaccine-vt-08
+  url: https://www.vericormed.com/product/cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerator-temperatures-fresh-vaccine-vt-08/
+product_url: https://www.vericormed.com/product/traceable-memory-loc-dual-zone-temperature-monitoring-data-logger-kit/
+images:
+- src: https://www.vericormed.com/wp-content/uploads/2015/10/6441-memory-loc-dual-zone-temp-monitoring-data-logger-kit-tm-6441.png
+  alt: 6441 Memory-Loc Dual Zone Temp Monitoring & Data Logger Kit -- TM-6441
+  name: 6441-Memory-Loc-Dual-Zone-Temp-Monitoring-Data-Logger-Kit-TM-6441
+  position: null
+- src: https://www.vericormed.com/wp-content/uploads/2017/01/6441-side.jpg
+  alt: TM-6441 side view Traceable® Memory-Loc™
+  name: TM-6441 side view
+  position: null
+- src: https://www.vericormed.com/wp-content/uploads/2017/01/6441-back.png
+  alt: TM-6441-back view Traceable® Memory-Loc™
+  name: TM-6441-back
+  position: null
+- src: https://www.vericormed.com/wp-content/uploads/2021/10/tm-ac-adapter-included.png
+  alt: tm-ac-adapter
+  name: tm-ac-adapter-included
+  position: null
+---
+
+# Memory-Loc™ Dual Zone Temp Monitoring & Data Logger Kit
+
+**Summary:** A data logging thermometer that locks over 1 million temperature observations (good for 21 CFR 11 environments) of two zones. This calibrated logger has user-defined time intervals, downloads data to any USB stick, and meets current CDC requirements.
+
+[vc\_row][vc\_column][vc\_column\_text]The Memory-Loc™ Dual Zone Temperature Monitoring & Data Logger Kit (TM-6441) is a data logging thermometer that locks over 1 million temperature observations (good for 21 CFR 11 environments) of two zones. This calibrated logger has user-defined time intervals (1-minute to 24-hours), downloads data to any USB stick, and meets current CDC requirements making it ideal for monitoring temperatures while storing/transporting vaccines or other important samples. The data logging feature logs 1,051,200 data points and then logs no more (although monitor will still display data). Base unit, probes (2), certificate, flip-open stand, wall mounting, Velcro®, magnetic strips, batteries, and universal adapter included.[/vc\_column\_text][/vc\_column][/vc\_row][vc\_row full\_width="stretch\_row\_content\_no\_spaces"][vc\_column][vc\_separator border\_width="2"][/vc\_column][/vc\_row][vc\_section][vc\_row][vc\_column][vc\_column\_text]
+
+### Technology & Features
+
+[/vc\_column\_text][/vc\_column][/vc\_row][vc\_row][vc\_column width="1/4"][vc\_single\_image image="7849" img\_size="full"][/vc\_column][vc\_column width="1/2"][vc\_single\_image image="7853" img\_size="full" alignment="center"][/vc\_column][vc\_column width="1/4"][/vc\_column][/vc\_row][vc\_row full\_width="stretch\_row" css=".vc\_custom\_1540308665666{margin-top: 40px !important;}"][vc\_column width="1/3" css=".vc\_custom\_1546877235668{background-color: #f9f9f9 !important;}"][vc\_column\_text]![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-1-150x150.png)
+
+Meets current CDC requirements for vaccine storage and monitoring.
+
+[/vc\_column\_text][/vc\_column][vc\_column width="1/3" css=".vc\_custom\_1546466688766{background-color: #f9f9f9 !important;}"][vc\_column\_text]![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-2-150x150.png)
+
+Data is transferred from thermometer to computer using any USB flash drive. No software needed.
+
+[/vc\_column\_text][/vc\_column][vc\_column width="1/3" css=".vc\_custom\_1546466701707{background-color: #f9f9f9 !important;}"][vc\_column\_text]![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-3-150x150.png)
+
+Probe bottles (filled with nontoxic GRAS glycol) insulate sensors from momentary temperature changes.
+
+[/vc\_column\_text][/vc\_column][/vc\_row][vc\_row][vc\_column][vc\_empty\_space][vc\_column\_text]
+
+### Additional Features
+
+[/vc\_column\_text][vc\_row\_inner][vc\_column\_inner width="1/2"][vc\_column\_text]
+
+* Ten-foot micro-cable permits refrigerator doors to close on it.
+* Great for 21 CFR 11 environments to lock raw data and prevent clearing/changing on base unit.
+* Smart-Alarm™ features a visual/audible alarm that continues to alarm even if the unit returns to non-alarm conditions.
+* Hassle-free retrieval of data - unit can remain in use while downloading and analyzing data.
+
+[/vc\_column\_text][/vc\_column\_inner][vc\_column\_inner width="1/2"][vc\_column\_text]
+
+* Status indicators - Low battery, memory full, USB data transfer and active alarm state.
+* User-defined data logging interval of one observation/minute to one observation/24 hours.
+* High-accuracy of ±0.25°C with a resolution of 0.01.
+* Multi-point calibration on an individually-numbered certificate assures accuracy.
+
+[/vc\_column\_text][/vc\_column\_inner][/vc\_row\_inner][/vc\_column][/vc\_row][vc\_row][vc\_column][vc\_empty\_space][/vc\_column][/vc\_row][vc\_row full\_width="stretch\_row\_content\_no\_spaces"][vc\_column][vc\_row\_inner][vc\_column\_inner width="1/4"][/vc\_column\_inner][vc\_column\_inner width="1/2"][vc\_single\_image image="7880" img\_size="medium" alignment="center"][/vc\_column\_inner][vc\_column\_inner width="1/4"][/vc\_column\_inner][/vc\_row\_inner][/vc\_column][/vc\_row][/vc\_section][vc\_row full\_width="stretch\_row" content\_placement="middle" css=".vc\_custom\_1538504489259{background-image: url(https://www.vericormed.com/wp-content/uploads/2015/10/Dimensions-Background.png?id=6494) !important;background-position: center !important;background-repeat: no-repeat !important;background-size: cover !important;}"][vc\_column][vc\_column\_text]
+
+### Dimensions & Specs
+
+[/vc\_column\_text][vc\_column\_text css=".vc\_custom\_1544022300486{margin-bottom: 5px !important;border-top-width: 5px !important;border-right-width: 5px !important;border-left-width: 5px !important;border-left-color: #0c0c0c !important;border-right-color: #0c0c0c !important;border-top-color: #0c0c0c !important;}"]
+
+**Base Unit:** 2¾” x 4¼” x ¾”  
+**Weight:** 6 oz.  
+**Temp Range:** -50 to 70°C (-58 to 158°F)
+
+[/vc\_column\_text][vc\_row\_inner][vc\_column\_inner width="1/4"][/vc\_column\_inner][vc\_column\_inner width="1/2"][vc\_single\_image image="7843" img\_size="medium" alignment="center"][/vc\_column\_inner][vc\_column\_inner width="1/4"][/vc\_column\_inner][/vc\_row\_inner][/vc\_column][/vc\_row][vc\_section][vc\_row content\_placement="middle"][vc\_column width="1/2"][vc\_column\_text]
+
+### **SEAMLESS ACCESSORY**
+
+
+
+This monitoring device pairs well with a Cool Cube™ PCM cooler. Although the cooler is so consistent and reliable, it is always good practice to keep monitoring temperature sensitive product even when on-the-go.
+
+[/vc\_column\_text][/vc\_column][vc\_column width="1/2"][vc\_single\_image image="7877" img\_size="full"][/vc\_column][/vc\_row][/vc\_section][vc\_row content\_placement="middle"][vc\_column width="1/2"][vc\_single\_image image="7875" img\_size="full"][/vc\_column][vc\_column width="1/2"][vc\_column\_text]
+
+### **EASY TO USE**
+
+
+
+Simple buttons with an easy to understand display make this the go-to product for temperature monitoring simplicity. No special docking stations or software needed to transfer data to a computer (PC or Mac).
+
+[/vc\_column\_text][/vc\_column][/vc\_row][vc\_row content\_placement="middle"][vc\_column width="1/2"][vc\_column\_text]
+
+### **HIGHLY REPUTABLE**
+
+
+
+Beginning with spot measuring in 1978, through the evolution of live Wi-Fi today, Traceable® specializes in condition monitoring in various applications (fridges/freezers, storerooms, research, blood banks, coolers, and more).
+
+[/vc\_column\_text][/vc\_column][vc\_column width="1/2"][vc\_single\_image image="7876" img\_size="full"][/vc\_column][/vc\_row][vc\_row full\_width="stretch\_row\_content\_no\_spaces"][vc\_column][vc\_separator][/vc\_column][/vc\_row][vc\_row][vc\_column][vc\_single\_image image="13006" img\_size="full"][vc\_separator color="black"][/vc\_column][/vc\_row][vc\_row][vc\_column][vc\_column\_text]
+
+[/vc\_column\_text][/vc\_column][/vc\_row]

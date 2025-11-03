@@ -1,0 +1,331 @@
+# Frozen -50° to -15°C
+![Lab Freeze -50° to -15°C header](https://www.vericormed.com/wp-content/uploads/2022/08/Lab-Freeze-50%C2%B0-to-15%C2%B0C-header2.png)
+A Cool Cube™ at Lab Freezer Temperatures is not an ordinary transport cooler (frozen vaccine and FFP carrier). It is an easy-to-carry, qualified container and pack-out system that keeps temperature sensitive product (varicella, MMRV, zoster, fresh frozen plasma) frozen between -50° and -15°C for over 2.5 days – without using ice or electricity! This cooler is ideal for transport, but also excels at protecting valuable product during off-site use and power outages, regardless of hot conditions. The simple, validated, patented technology is the best compact thermal protection product available to maintain the cold chain!
+![Cool Cube™ group scaled with people](https://www.vericormed.com/wp-content/uploads/2015/10/Cool-Cube-group-scaled-with-people.png)
+**Transport & Storage Coolers @ Lab Freezer Temps for Varicella, MMRV, Zoster, FFP, etc.**
+  * [![Cool Cube™ 03 at Lab Freezer Temps Hero Image](https://www.vericormed.com/wp-content/uploads/2015/10/Cool-Cube%E2%84%A2-FT-03-at-Frozen-Temps-hero-324x324.png)Cool Cube™ 03 at Lab Freezer Temps $649.00 ](https://www.vericormed.com/product/cool-cube-03-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-03/)[View Product](https://www.vericormed.com/product/cool-cube-03-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-03/)
+
+  * [![Cool Cube™ 08 at Lab Freezer Temps Hero Image](https://www.vericormed.com/wp-content/uploads/2015/10/Cool-Cube%E2%84%A2-FT-08-at-Frozen-Temps-hero-324x324.png)Cool Cube™ 08 at Lab Freezer Temps $849.00 ](https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/)[View Product](https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/)
+
+  * [![Cool Cube™ 28 at Lab Freezer Temps Hero Image](https://www.vericormed.com/wp-content/uploads/2015/10/Cool-Cube%E2%84%A2-FT-28-at-Frozen-Temps-hero-324x324.png)Cool Cube™ 28 at Lab Freezer Temps $1,499.00 ](https://www.vericormed.com/product/cool-cube-28-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-28/)[View Product](https://www.vericormed.com/product/cool-cube-28-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-28/)
+
+  * [![Cool Cube 96 at Lab Freezer Temps Hero Image](https://www.vericormed.com/wp-content/uploads/2015/10/Cool-Cube%E2%84%A2-FT-96-at-Frozen-Temps-hero-324x324.png)Cool Cube™ 96 at Lab Freezer Temps $2,299.00 ](https://www.vericormed.com/product/cool-cube-96-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-96/)[View Product](https://www.vericormed.com/product/cool-cube-96-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-96/)
+
+**Lab Freezer Cool Cube™ Technical Information**
+[Preparation Methods](https://www.vericormed.com/frozen-50-to-15c/#frozenprepmethods "Preparation Methods")
+![stamp qualified](https://www.vericormed.com/wp-content/uploads/2015/10/stamp-qualified-s.png)
+## Easy & Safe Pack-Out
+![Vaccine For Children \(VFC\) Compliant](https://www.vericormed.com/wp-content/uploads/2015/10/vfc-compliant-s.png)
+![Frozen Temps Prep Steps 1-5](https://www.vericormed.com/wp-content/uploads/2021/07/Frozen-Temps-Prep-Steps-1-5.png)
+# Cool Cube™ Lab Freezer Temp Training Videos
+  * [Prep A-C Introduction](https://www.vericormed.com/frozen-50-to-15c/#1633957382311-17041c6d-940a)
+  * [Method A](https://www.vericormed.com/frozen-50-to-15c/#1623078959658-cd60615b-1d9fb7cf-de86)
+  * [Method B](https://www.vericormed.com/frozen-50-to-15c/#1623078959832-6ac32a2d-b066b7cf-de86)
+  * [Method C](https://www.vericormed.com/frozen-50-to-15c/#1623078959935-376b43db-7122b7cf-de86)
+
+#### [Prep A-C Introduction](https://www.vericormed.com/frozen-50-to-15c/#1633957382311-17041c6d-940a)
+### Cool Cube™ Lab Freezer – Prep Introduction
+#### [Method A](https://www.vericormed.com/frozen-50-to-15c/#1623078959658-cd60615b-1d9fb7cf-de86)
+### Prep Method A – Ultra-low freezer
+[Method A Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-a-best-practices-041822/ "Method A Download \(Lab Freezer PCM\)")
+#### [Method B](https://www.vericormed.com/frozen-50-to-15c/#1623078959832-6ac32a2d-b066b7cf-de86)
+### Prep Method B – Dry ice
+[Method B Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-b-best-practices-041822/ "Method B Download \(Lab Freezer PCM\)")
+#### [Method C](https://www.vericormed.com/frozen-50-to-15c/#1623078959935-376b43db-7122b7cf-de86)
+### Prep Method C – No access to Ultra-low freezer (short term use)
+[Method C Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-c-best-practices-041822/ "Method C Download \(Lab Freezer PCM\)")
+### Lab Freezer Cool Cube™ Prep Methods
+  * [Prep Downloads](https://www.vericormed.com/frozen-50-to-15c/#1545829381490-ee0f047f-b107)
+  * [Prep Methods](https://www.vericormed.com/frozen-50-to-15c/#1545829381513-a0860a95-3589)
+  * [Lab Freezer Info](https://www.vericormed.com/frozen-50-to-15c/#1545831077972-f7f94196-c03c)
+  * [Performance](https://www.vericormed.com/frozen-50-to-15c/#1545831150928-b6514299-da3a)
+  * [Best Practices](https://www.vericormed.com/frozen-50-to-15c/#1545831185637-7ad6537d-dc1e)
+
+#### [Prep Downloads](https://www.vericormed.com/frozen-50-to-15c/#1545829381490-ee0f047f-b107)
+[![All - Lab Freezer Prep Methods](https://www.vericormed.com/wp-content/uploads/2021/07/Lab-Freezer-Prep-Header-new-080221.png)](https://www.vericormed.com/?wpfb_dl=612)  
+[![All - Lab Freezer Prep Methods](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Prep-Options-Chart.png)](https://www.vericormed.com/?wpfb_dl=612)
+*Panels may be stored at this stage indefinitely (for longer than indicated).
+
+[![old to new stamp - lab freezer](https://www.vericormed.com/wp-content/uploads/2021/08/old-to-new-stamp-lab-freezer-300x81.png)](https://www.vericormed.com/wp-content/uploads/2021/08/old-to-new-stamp-lab-freezer.png)
+_About**Lab Freezer PCM** (Phase Change Material)_
+Phase Change Materials (PCMs) are substances that absorb and release thermal energy during melting and freezing. When a solid PCM melts, it absorbs heat from its surroundings but remains at its melting temperature until it has completely liquefied. Conversely, when a liquid PCM freezes, it releases heat yet maintains its freezing temperature until it solidifies entirely. This unique ability to maintain a constant temperature during phase changes makes PCMs ideal for precise temperature control.
+Water is the most common PCM, melting at 0 °C (32 °F). However, this temperature is too high for applications that require deep freezing conditions, such as transporting certain laboratory samples, biological materials, and pharmaceuticals that need to be kept well below freezing. Using water as a PCM in these cases would not maintain the necessary low temperatures, potentially compromising the integrity of these sensitive products.
+The Cool Cube™ designed for lab freezer temperatures utilizes a specialized PCM with a melting point of -21.5 °C (-6.7 °F). Inside the Cool Cube™, six PCM panels surround the cargo on all sides—top, bottom, and all four sides. This design ensures even temperature distribution throughout the unit, maintaining a consistent temperature within the ideal ultra-cold range required for sensitive materials.
+Because the PCM panels maintain a stable, ultra-cold temperature, they can surround the cargo completely, ensuring that all areas within the Cool Cube™ are kept at the necessary low temperature. The even placement of the PCM panels eliminates temperature gradients and cold spots, providing uniform cooling throughout. Products can come into direct contact with the PCM panels, which simplifies packing and ensures efficient temperature control without the risk of uneven cooling or temperature fluctuations.
+#### **CLICK & PRINT DOWNLOADS (PDF)**
+#### [Prep Methods](https://www.vericormed.com/frozen-50-to-15c/#1545829381513-a0860a95-3589)
+![Lab Freezer - Prep Method A - Ultra-Low Freezer Prep to keep product frozen](https://www.vericormed.com/wp-content/uploads/2018/07/Series-20M-Prep-Method-A-Ultra-Low-Freezer-Prep-to-keep-product-frozen-800.jpg)
+#### Prep Method A: Ultra-Low Freezer Prep to keep product frozen
+**Panel Prep**
+**2.1 Lay panels flat in an ultra-low freezer until all the PCM (phase change material inside the panel) turns solid. At -25°C/-13°F the PCM will solidify in a day or two.*  
+**
+* If the freezer temperature is ever warmer than -25°C, PCM may not get completely solid (due to the possibility of supercooling). If panels are stored within the temperature parameters of the product but the PCM is liquid, panels may be used but the hold time will decrease.
+
+**  
+`  
+ ``  
+ `**
+`  
+ ``  
+ `  
+![Shake PCM Panel To Check](https://www.vericormed.com/wp-content/uploads/2018/06/Shake-PCM-Panel-To-Check-150x150.png)
+`  
+ ``  
+ `
+**2.2 Shake panels to verify the PCM is solid.** If there is liquid, restart at step 2.1 to ensure the longest hold time. Using liquid PCM or panels with a solid/liquid combination decreases the hold time.
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+* * *
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+![Lab Freezer - Prep Method B - Dry Ice-Freezer Prep to keep product frozen](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Prep-B-1.png)  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+#### Prep Method B: Dry Ice Prep to keep product frozen
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**Panel Prep**
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**2.1 Pack out cooler with dry ice** until the PCM (phase change material inside the panel) panels become solid. The more dry ice, the faster the PCM will solidify.*  
+`  
+ ``  
+ `
+* Time varies dependent on the starting temperature of the panels, size of panels, and amount of dry ice used. CAUTION: Dry ice has a surface temperature of -78.5°C/-109.3°F, so handle with care.
+
+`  
+ ``  
+ `
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**2.2**(Optional)** If product to be packed out cannot withstand an initial -70°C temperature, **transfer panels into a standard freezer at least 3 hours before use.** Panels may be stored in the freezer until needed for assembly or the PCM melts.**
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+> If a freezer maintains -23°C or below, the PCM within the panels will not melt (melting point is   
+>  `  
+>  ``  
+>  `
+`  
+ ``  
+ `  
+`  
+ ``  
+ `![Shake PCM Panel To Check](https://www.vericormed.com/wp-content/uploads/2018/06/Shake-PCM-Panel-To-Check-150x150.png)  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**2.3 Shake panels to verify the PCM is solid.** If there is liquid, restart at step 2.1 to ensure the longest hold time. Using liquid PCM or panels with a solid/liquid combination decreases the hold time.
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+* * *
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**  
+![Lab Freezer - Prep Method C - Standard Freezer Prep to keep product frozen](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Prep-C-1.png)**
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+#### Prep Method C: Standard Freezer Prep to keep product frozen
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**Panel Prep**
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**Store panels in a standard freezer (turned down to its lowest setting)** for a minimum of 24 hours before use. Unless the freezer is always below -23°C, the PCM (phase change material inside the panel) will never turn completely solid, but short-term use is still possible.*  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+* Although PCM is liquid, it is at the temperature of storage environment after 3 hours. For instance, panels stored in a -18°C freezer are at -18°C even PCM is liquid. Assembling the Cool Cube™ with this additional thermal mass will keep product frozen, just for a shorter amount of time than the lab-validated results.
+
+`  
+ ``  
+ `
+`  
+ ``  
+ `  
+![Shake PCM Panel To Check](https://www.vericormed.com/wp-content/uploads/2018/06/Shake-PCM-Panel-To-Check-150x150.png)
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+**Shake panels** to check the state of the PCM (phase change material inside the panel).  
+`  
+ ``  
+ `
+`  
+ ``  
+ `
+      * If liquid…panel is at the freezer temp but above -20°C; anticipate shorter hold times.
+
+`  
+ ``  
+ `
+      * If solid…panel is at the freezer temp but below -23°C; ideal for maximum hold times.
+
+`  
+ ``  
+ `
+      * If solid/liquid combination…panel is at the freezer temp between -23 and -20°C; monitor longer use periods.
+
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `  
+`  
+ ``  
+ `
+#### [Lab Freezer Info](https://www.vericormed.com/frozen-50-to-15c/#1545831077972-f7f94196-c03c)
+![Thermal Properties of Series 20M PCM Panels](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-PCM-Shake-Test.png)  
+`  
+ ``  
+ ``  
+ `
+Phase change materials (PCMs) are materials that absorb and release thermal energy during the process of melting and freezing. When a PCM melts, it absorbs the heat from the environment, yet its temperature stays at the melting point until totally liquid. Conversely, when a PCM freezes, it absorbs the cold from the environment, yet stays at its temperature until totally solid. This makes PCM an ideal, passive solution for a variety of applications that require temperature control. The most common PCM is water/ice. Ice is an excellent PCM for maintaining temperatures at 0°C. But water’s freezing point is fixed at 0°C (32°F), which makes it unsuitable for most temperature sensitive applications.
+`  
+ ``  
+ ``  
+ `  
+`  
+ ``  
+ ``  
+ `
+Cool Cube™ PCMs offer custom temperature holds based on their melting point. The PCM inside Lab Freezer panels has a melting point of 
+`  
+ ``  
+ ``  
+ `  
+`  
+ ``  
+ ``  
+ `![Thermal Properties of Series 20M PCM Panels](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Temperature-Hold-Times.png)  
+`  
+ ``  
+ ``  
+ `  
+`  
+ ``  
+ ``  
+ `
+* * *
+`  
+ ``  
+ ``  
+ `  
+`  
+ ``  
+ ``  
+ `
+#### [Cool Cube™ User Guide](https://www.vericormed.com/?wpfb_dl=433)
+`  
+ ``  
+ ``  
+ `[wpfilebase tag=file id=433/]
+#### [Performance](https://www.vericormed.com/frozen-50-to-15c/#1545831150928-b6514299-da3a)
+![Cool-Cube™-with-series-20m-PCM-&-Dims](https://www.vericormed.com/wp-content/uploads/2021/06/cool-cube-with-series-lab-freezer-temps-dims.png)  
+`  
+ ``  
+ `
+### Refrigerated Temps Hold Time:
+`  
+ ``  
+ `  
+`  
+ ``  
+ `[![Hold-temps-Series-20 PCM](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Temperature-Hold-Times-All-Sizes.png)](https://www.vericormed.com/wp-content/uploads/2021/06/Lab-Freezer-Temperature-Hold-Times-All-Sizes.png)
+#### [Best Practices](https://www.vericormed.com/frozen-50-to-15c/#1545831185637-7ad6537d-dc1e)
+![PCM Panel Prep Steps Sequence](https://www.vericormed.com/wp-content/uploads/2021/07/Refrigerated-Prep-Steps-1-5.png)  
+![PCM Panel Spacing Customer Solution](https://www.vericormed.com/wp-content/uploads/2021/07/Stacked-PCM-Panels.png)
+  * Always prep the PCM panels before use according to one of the described methods provided by VeriCor.
+  * Ensure all components are clean and free of damage.
+  * During prep, enable ample air flow around all panel sides (use spacers or racks).
+  * Lay panels flat when “freezing”.
+  * Freeze/melting times vary depending on number of panels being prepped and equipment specifications being used. Assemble using all six panels for maximum hold time.
+  * Using less panels does not change the holding temperature but does decrease hold time.
+  * Panels are reusable (10,000+ cycles). (End-of-life disposal: panels use a plastic #2, typically recycled by businesses/communities; PCM is nontoxic and readily biodegradable.)
+  * Use a calibrated data logger or other temperature monitoring device to observe internal temperature.
+  * Avoid unnecessary opening of the Cool Cube™ after loading payload. Opening of the Cool Cube™ will decrease hold time.
+  * An infrared temperature thermometer can assist in ensuring the panels reach a safe pack-out temperature (good for finding out the approximate temperature of each panel).
+  * Further the temps are away from the melting point, the quicker PCM will change states.
+
+[All Methods Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-options-a-c-best-practices-041822/)
+[Method A Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-a-best-practices-041822/)
+[Method B Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-b-best-practices-041822/)
+[Method C Download (Lab Freezer PCM)](https://www.vericormed.com/download-pdf/cool-cube-lab-freezer-prep-c-best-practices-041822/)
+![have-questions-750x273](https://www.vericormed.com/wp-content/uploads/2019/11/have-questions-750x273.png)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

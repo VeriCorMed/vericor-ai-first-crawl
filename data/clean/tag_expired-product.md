@@ -1,0 +1,9 @@
+# Tag: Expired Product
+Posted on [November 28, 2018October 28, 2024](https://www.vericormed.com/cool-cube-faq-medical-supply-organization-replace-expired-product/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Cool Cube™ FAQ | Medical Supply Organization | Replace Expired Product](https://www.vericormed.com/cool-cube-faq-medical-supply-organization-replace-expired-product/)
+![Cool-Cubes-from-past-to-present](https://www.vericormed.com/wp-content/uploads/2018/04/cool-cubes-from-past-to-present-300x200.png)
+Cool Cube™ FAQA Question From Your ColleaguesQuestion: “How long have you been selling the Cool Cube™?”Answer: 9 years. In late 2009 customers were asking about coolers for vaccine transport. They were using off-the-shelf coolers with ice packs and found it to be a pain to pack-out and not that reliable. The solution…use phase change material [Read More](https://www.vericormed.com/cool-cube-faq-medical-supply-organization-replace-expired-product/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [CDC Vaccine Storage](https://www.vericormed.com/tag/cdc-vaccine-storage/), [Cool Cube™ FAQ](https://www.vericormed.com/tag/cool-cube-faq/), [Expired Product](https://www.vericormed.com/tag/expired-product/), [Medical Cache Conversion](https://www.vericormed.com/tag/medical-cache-conversion/), [Medical Supply Organization](https://www.vericormed.com/tag/medical-supply-organization/), [PCM](https://www.vericormed.com/tag/pcm/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

@@ -1,0 +1,9 @@
+# Tag: Easy-to-Use Data Loggers
+Posted on [July 25, 2017July 25, 2017](https://www.vericormed.com/easy-use-data-loggers-triage-treatment-convert-cache/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Easy-to-Use Data Loggers | Triage & Treatment | Convert the “Cache”](https://www.vericormed.com/easy-use-data-loggers-triage-treatment-convert-cache/)
+![CDC Compliant Logging Dependable Temp Monitoring](https://www.vericormed.com/wp-content/uploads/2017/04/CDC-Compliant-Logging-Dependable-Temp-Monitoring-300x200.jpg)
+Easy-to-Use Data LoggersTemperature Sensitive MonitoringAs the guidelines for monitoring temperature sensitive product become more and more stringent, an emphasis is being placed on data loggers and the ability to create a detailed record of the storage environment when needed. VeriCor carries a variety of loggers that are CDC/FDA compliant. Order direct or buy them on [Read More](https://www.vericormed.com/easy-use-data-loggers-triage-treatment-convert-cache/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cache](https://www.vericormed.com/tag/cache/), [Data Loggers](https://www.vericormed.com/tag/data-loggers/), [Easy-to-Use Data Loggers](https://www.vericormed.com/tag/easy-to-use-data-loggers/), [Temperature Sensitive Monitoring](https://www.vericormed.com/tag/temperature-sensitive-monitoring/), [Triage and Treatment](https://www.vericormed.com/tag/triage-and-treatment/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

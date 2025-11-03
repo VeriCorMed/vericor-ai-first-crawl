@@ -1,0 +1,60 @@
+# CDC Vaccine Storage and Handling Toolkit 2019 – What changed?
+-
+## CDC Vaccine Storage and Handling Toolkit 2019 - What changed?
+-
+This year the CDC has made some big changes to the Vaccine Storage and Handling Toolkit 2019. We’ve taken some time highlight the changes between the past and present guidelines.
+The newly revised toolkit looks to have taken a giant leap forward in communicating best practices regarding vaccine management. Make sure to read below for a complete list of changes, additions and deletions (with page #s included).
+**If you are new to vaccine handling and storage** , I would highly encourage you to read the Toolkit in its entirety. The CDC has made great strides in communicating and disseminating information, recommendations and resources to assist providers on how to handle and store their vaccine supply. It’s a pretty quick read considering that not too long ago (early 2014) it was a 135-page pdf that would suck your printer’s toner dry. So please, take 30 minutes to read it…patient safety (yours, mine and my children’s) is at stake. _Interested in the past? Find copies of past revisions all the way back to 2012 on our web page[here](https://www.vericormed.com/toolkit-history/)._
+**However, if you have read these toolkits year-after-year** , the real question that comes to mind is: “What changed?” Well, here you go…
+#### CHANGES from the 2018 Vaccine Storage and Handling Toolkit (page #s refer to the NEW 2019 publication found [here](https://www.cdc.gov/vaccines/hcp/admin/storage/toolkit/storage-handling-toolkit.pdf))
+  * **The document slimmed down from 81 pages to 49 pages** : this may seem drastic, but most of that 40% reduction was the removal of duplicate ideas or common sense knowledge. Except for a couple pages (which I will get into later), the ideas remained the same.
+  * **New cover** : a bit of a disappointment for VeriCor since the 2018 version had a picture of an older Cool Cube™ 03 being used. However, it is understandable as they don’t want to endorse specific brands. Overall, the new cover looks professional with some good design elements. _(__***[The Cool Cube™ 03](https://www.vericormed.com/product/cool-cube-03-at-fridge-temperatures-vt-03-vaccine-transport-cooler/)_ _is still pictured in the“[You Call the Shots” online training module](https://www2a.cdc.gov/nip/isd/ycts/mod1/courses/sh/index.html) –slide 122– as a “Qualified Container and Packout”.***)_
+  * **Table of Contents revamped** : what used to be five pages is now one page. It’s easy to scan and gets you to where you want to go. _(p. 1)_
+  * **Toolkit icons modified and descriptions added** : for clear and simple communication. The best practice icon stands out and the gives clarification on the use. The “Take immediate action!” of the 2018 Toolkit was eliminated and replaced with a basic green check mark for “CDC Recommendation”.  _(p. 3)_
+  * **An overhauled “Cold Chain Flowchart”** : a more modern infographic replaces a dated, pixelated chain that had been there for years. There’s a lot going on in the infographic, but hopefully you can get the idea.  _(p. 4)_
+  * **A de-emphasis on the free “You Call the Shots” online training modul** e: what was mentioned twice with a big paragraph in 2018 has been whittled down to a sentence. It’s still available but doesn’t look like it is being kept up. The linked training module still references 2018 information.  _(p. 6)_
+  * **A general consolidation of previous Organizing and Storing Vaccine information** with the addition of two points: relating to where things should be stored and the freezer compartment of a fridge/freezer combo. The rework of this section was much needed and well done.  _(p. 12)_
+  * **Vaccine Transport** : probably the most notable change of the toolkit. What was previously just over a page long (& lost within a larger section of the previous toolkit) is now a just over three pages and is its own section… “SECTION SIX.” About a third of the content is new, a third of it was clarified, and a third of it came over from the previous toolkit. A clarifying “Transport System Recommendations” table clearly spells out what is and is not acceptable for emergency transport and other transport such as off-site clinics, satellite facilities, and relocation instances.  _(p. 21-24)_
+  * **Emergency Vaccine Storage and Handling Section revamp** : what used to be over seven pages is now a page and a half. Many of the ideas were placed into other sections. But a big notable was the elimination of frozen water bottles as coolant packs. Instead the emphasis is being put on qualified containers and packouts. _(p. 25-26)_
+  * **New glossary terms** : “Household-grade storage unit”, “Purpose-built /pharmaceutical-grade units”, and “Stand-alone storage unit” were the three terms added. Obviously the storage issue needed clarification.  _(p. 27-28)_
+  * **New page** : “Purpose-Built Vaccine Storage Units”. With the market growth of this type of product, addressing what is out there is key. The previous toolkit had mention of these, but now it is being clearly communicated. I would expect this to expand in the future.  _(p. 29)_
+  * **All labels were revamped** : a cleaner, standardized look.  _(p. 40-48)_
+
+#### ADDITIONS (page #s refer to the NEW Vaccine Storage and Handling Toolkit 2019 found [here](https://www.cdc.gov/vaccines/hcp/admin/storage/toolkit/storage-handling-toolkit.pdf))
+  * **Vendor terms that are being used** : this is a paragraph explaining the common phrases of “VFC-compliant,” “CDC-compliant,” or “satisfies VFC requirements” that are being thrown around out there; a good thing to address but probably not needed twice. _(p. 2 & 8)_
+  * **“When the cold chain fails” section** : a couple sentences have been added as some general knowledge. But the section should have been renamed “Maintaining the Cold Chain”. _(p. 5)_
+  * **Vaccine coordinator delegation recommendation** : a basic chain of command reminder. _(p. 7)_
+  * **A reason for keeping data three years** : obviously to put an emphasis on record keeping._(p. 9)_
+
+#### DELETIONS (page #s refer to the OLD 2018 Vaccine Storage & Handling Toolkit found [here](https://www.vericormed.com/?wpfb_dl=696))
+  * Photographs “explanation” as well as all photos of actual product. _(p. 9)_
+  * Comparison of properly stored and improperly stored vaccine. _(p. 11)_
+  * “Knowledgeable staff can also save your practice significant costs of wasted vaccine and prevent loss of credibility among patients who must be revaccinated due to a storage and handling error.” _(p. 12)_
+  * “Labels should include immediate steps to take if power is interrupted. If your building is owned by a third party and you do not have access to circuit breakers, work with your building manager.” _(p. 19)_
+  * Examples of the types of vaccine stored in refrigerators and freezers. _(p. 20)_
+  * “Storing Vaccine a Freezer Unit” section. _(p. 22-23)_
+  * An explanation for why food and beverages should never be stored with vaccine. _(p. 24)_
+  * An explanation for DDL placement. _(p. 25)_
+  * Some basic maintenance information. _(p. 28)_
+  * “Post a warning sign on all storage units stating, ‘Do NOT adjust temperature controls. Notify (name of vaccine coordinator) if adjustment is necessary.’” _(p. 29)_
+  * Paragraph concerning TMDs. _(p. 30)_
+  * Some guidelines for the person arranging for vaccine deliveries. _(p. 31)_
+  * An image/example to help understand expiration dates. _(p. 32)_
+  * Redundant information about the stock record. _(p. 34)_
+  * “Emergency Storage, Handling, and Transport” opening two paragraphs. _(p. 50)_
+  * “Soon-to-expire-products” term and definition. _(p. 53)_
+  * “Additional References” pages. _(p. 54-55)_
+  * “Vaccine Manufacturer/Distributor Contact List” pages. _(p. 63-64)_
+
+The goal was to clarify a few things about the new CDC Vaccine Storage and Handling Toolkit 2019. Did we do that? Did we miss anything? Was this helpful? Please take the time to send us some feedback so that we can serve people like you better in the future: **info@vericormed.com**.
+### Share this:
+  * [ Click to share on X (Opens in new window) X ](https://www.vericormed.com/cdc-vaccine-storage-and-handling-toolkit-2019-what-changed/?share=twitter&nb=1)
+  * [ Click to share on Facebook (Opens in new window) Facebook ](https://www.vericormed.com/cdc-vaccine-storage-and-handling-toolkit-2019-what-changed/?share=facebook&nb=1)
+
+Category: [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [2019 Vaccine Storage and Handling Toolkit](https://www.vericormed.com/tag/2019-vaccine-storage-and-handling-toolkit/), [CDC](https://www.vericormed.com/tag/cdc/), [CDC-compliant](https://www.vericormed.com/tag/cdc-compliant/), [Cold Chain](https://www.vericormed.com/tag/cold-chain/), [Cool Cube™ 03](https://www.vericormed.com/tag/cool-cube-03/), [Maintaining the Cold Chain](https://www.vericormed.com/tag/maintaining-the-cold-chain/), [vaccine handling](https://www.vericormed.com/tag/vaccine-handling/), [vaccine management](https://www.vericormed.com/tag/vaccine-management/), [vaccine storage](https://www.vericormed.com/tag/vaccine-storage/), [VFC-compliant](https://www.vericormed.com/tag/vfc-compliant/), [You Call the Shots online training module](https://www.vericormed.com/tag/you-call-the-shots-online-training-module/)
+## Post navigation
+[Previous post: What is a Qualified Container and Packout? | Emergency Preparedness (EP) Trailers | Staff PPE Kits](https://www.vericormed.com/what-is-a-qualified-container-and-packout-emergency-preparedness-ep-trailers-staff-ppe-kits/)
+[Next post: CDCs 2019 Toolkit | Emergency Burn Care Kits | System Training](https://www.vericormed.com/cdcs-2019-toolkit-emergency-burn-care-kits-system-training/)
+
+-

@@ -1,0 +1,9 @@
+# Tag: Temp Monitor
+Posted on [October 31, 2018October 28, 2024](https://www.vericormed.com/temp-monitor-faq-patient-alternate-care-site-a-golden-hour-solution/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Temp Monitor FAQ | Patient Alternate Care Site | A “Golden Hour” Solution](https://www.vericormed.com/temp-monitor-faq-patient-alternate-care-site-a-golden-hour-solution/)
+![Temp-Monitor-FAQ](https://www.vericormed.com/wp-content/uploads/2018/10/Temp-Monitor-FAQ-300x200.jpg)
+Temp Monitor FAQA Question From Your ColleaguesQuestion: “How do I change it from Celsius to Fahrenheit?”Answer: The bottom front cover slides down to reveal the buttons needed on the TM-6430, TM-6431, TM-6440, TM-6441 models. Feeling foolish? Don’t…many others have missed that as well. Now if you have the TM-4127, that cover does not slide down…the [Read More](https://www.vericormed.com/temp-monitor-faq-patient-alternate-care-site-a-golden-hour-solution/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Alternate Care Site](https://www.vericormed.com/tag/alternate-care-site/), [Golden Hour](https://www.vericormed.com/tag/golden-hour/), [Mobile Emergency Room](https://www.vericormed.com/tag/mobile-emergency-room/), [mobile surgical units](https://www.vericormed.com/tag/mobile-surgical-units/), [Patient Surge](https://www.vericormed.com/tag/patient-surge/), [Response-Friendly](https://www.vericormed.com/tag/response-friendly/), [Temp Monitor](https://www.vericormed.com/tag/temp-monitor/), [Temperature Monitoring](https://www.vericormed.com/tag/temperature-monitoring/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

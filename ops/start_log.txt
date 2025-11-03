@@ -1,0 +1,9 @@
+--- New run: Wed 10/15/2025  7:06:03.96 --- 
+ 
+Activating from C:\Users\Finn\Projects\vericor-crawl\venv\Scripts\activate.bat 
+[INFO] Loaded environment vars from env\.env 
+C:\Users\Finn\Projects\vericor-crawl\venv\Scripts\python.exe
+C:\Users\Finn\AppData\Local\Programs\Python\Python313\python.exe
+C:\Users\Finn\AppData\Local\Microsoft\WindowsApps\python.exe
+Python 3.13.5
+[INFO] WC_SITE=https://www.vericormed.com 

@@ -1,0 +1,12 @@
+# Tag: HICS Support Module
+Posted on [April 3, 2019January 2, 2020](https://www.vericormed.com/opening-the-cooler-during-a-clinic-off-site-vaccinations-mobile-command-control/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Opening the Cooler During a Clinic | Off-Site Vaccinations | Mobile Command & Control](https://www.vericormed.com/opening-the-cooler-during-a-clinic-off-site-vaccinations-mobile-command-control/)
+![Cool Cubes The Ultimate Cooler w Pack-Out](https://www.vericormed.com/wp-content/uploads/2019/04/Cool-Cubes-The-Ultimate-Cooler-w-Pack-Out-300x200.jpg) Hello, medical professionals! Keeping vaccine and other temperature sensitive safe while on-the-go is of paramount importance...hence the first section. Not interested in the cold chain? The next two sections deal with easy to move vaccination kits and a Response-Friendly® HICS station. As always, have a productive week! To help you scan topics faster, here are [Read More](https://www.vericormed.com/opening-the-cooler-during-a-clinic-off-site-vaccinations-mobile-command-control/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Cool Cube™ 08](https://www.vericormed.com/tag/cool-cube-08/), [HICS Support Module](https://www.vericormed.com/tag/hics-support-module/), [mobile cases](https://www.vericormed.com/tag/mobile-cases/), [Mobile Command & Control](https://www.vericormed.com/tag/mobile-command-control/), [Off-Site Vaccinations](https://www.vericormed.com/tag/off-site-vaccinations/), [PCM Coolers](https://www.vericormed.com/tag/pcm-coolers/), [Vaccination Clinic](https://www.vericormed.com/tag/vaccination-clinic/), [Vaccine](https://www.vericormed.com/tag/vaccine/), [Workstation](https://www.vericormed.com/tag/workstation/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/tag/hics-support-module/)
+  * [1](https://www.vericormed.com/tag/hics-support-module/)
+  * 2
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

@@ -1,0 +1,8 @@
+# Tag: ACS
+Posted on [February 26, 2020June 1, 2020](https://www.vericormed.com/response-friendly-medical-kits-alternate-care-site-acs-system-an-emergency-room-in-a-tent/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Response-Friendly® Medical Kits | Alternate Care Site (ACS) System | An emergency room in a tent](https://www.vericormed.com/response-friendly-medical-kits-alternate-care-site-acs-system-an-emergency-room-in-a-tent/)
+In this Bi-Weekly Issue In this biweekly issue: Bookmark it! Medical Kits (MedKits) Alternate Care Site System Mobile ER System As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) Bookmark It! The best website for anything related to vaccines. (No, it's not our [Read More](https://www.vericormed.com/response-friendly-medical-kits-alternate-care-site-acs-system-an-emergency-room-in-a-tent/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [ACS](https://www.vericormed.com/tag/acs/), [Alternate Care Site System](https://www.vericormed.com/tag/alternate-care-site-system/), [Emergency Room](https://www.vericormed.com/tag/emergency-room/), [Medical Kits](https://www.vericormed.com/tag/medical-kits/), [Response-Friendly](https://www.vericormed.com/tag/response-friendly/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

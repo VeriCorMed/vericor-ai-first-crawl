@@ -1,0 +1,30 @@
+# Author: Luther
+Posted on [May 13, 2024May 13, 2024](https://www.vericormed.com/important-updates-to-the-cdcs-vaccine-storage-and-handling-toolkit/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Important Updates to the CDC’s Vaccine Storage and Handling Toolkit](https://www.vericormed.com/important-updates-to-the-cdcs-vaccine-storage-and-handling-toolkit/)
+![Prepping for the Next Wave](https://www.vericormed.com/wp-content/uploads/2022/04/Prepping-for-the-Next-Wave-281x300.jpg)
+The Centers for Disease Control and Prevention (CDC) has released critical updates to its Vaccine Storage and Handling Toolkit effective March 29, 2024. These revisions, which encompass a broad range of topics, are designed to assist healthcare providers in ensuring the safe and effective storage, handling, and transportation of vaccines. One key change is the [Read More](https://www.vericormed.com/important-updates-to-the-cdcs-vaccine-storage-and-handling-toolkit/)
+Categories: [Cool Cube](https://www.vericormed.com/category/cool-cube/), [Public Health](https://www.vericormed.com/category/public-health/)
+Posted on [March 20, 2024March 20, 2024](https://www.vericormed.com/bridging-the-last-mile-keeping-vaccines-safe-in-rural-clinics/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Bridging the Last Mile: Keeping Vaccines Safe in Rural Clinics](https://www.vericormed.com/bridging-the-last-mile-keeping-vaccines-safe-in-rural-clinics/)
+Sarah, a public health nurse, drives for hours down a dusty road, a cooler filled with life-saving vaccines strapped securely in the back of her van. Reaching a remote town, she sets up a temporary clinic, her expertise ensuring even the most isolated communities have access to critical immunizations. But Sarah faces a silent threat: [Read More](https://www.vericormed.com/bridging-the-last-mile-keeping-vaccines-safe-in-rural-clinics/)
+Categories: [Cool Cube](https://www.vericormed.com/category/cool-cube/), [Public Health](https://www.vericormed.com/category/public-health/)
+Posted on [February 19, 2024February 19, 2024](https://www.vericormed.com/enhancing-emergency-preparedness-building-a-robust-patient-surge-capacity-system/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Enhancing Emergency Preparedness: Building a Robust Patient Surge Capacity System](https://www.vericormed.com/enhancing-emergency-preparedness-building-a-robust-patient-surge-capacity-system/)
+Ensuring readiness for any scenario is paramount for individuals involved in disaster preparedness. Patient surge capacity equipment and supplies enable healthcare teams to effectively manage surges during emergencies like mass casualty incidents or natural disasters.While acquiring these resources is crucial, simply having them scattered is insufficient. This blog post outlines the key elements of a [Read More](https://www.vericormed.com/enhancing-emergency-preparedness-building-a-robust-patient-surge-capacity-system/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/)
+Posted on [August 10, 2020](https://www.vericormed.com/modern-day-vaccine-transport/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Modern Day Vaccine Transport](https://www.vericormed.com/modern-day-vaccine-transport/)
+ARTICLE Modern Day Vaccine Transport by Luther OlsonAugust 10, 2020 Now more than ever the transport of vaccine will be scrutinized. From simply moving a small amount of vaccine for an off-site immunization clinic, to mass relocation of vaccine in accordance to emergency management protocols—the details will be examined. Most Vaccines for Children (VFC) program providers [Read More](https://www.vericormed.com/modern-day-vaccine-transport/)
+Category: [Public Health](https://www.vericormed.com/category/public-health/)
+Posted on [January 21, 2020October 28, 2024](https://www.vericormed.com/whats-been-updated-in-the-2020-cdc-vaccine-vaccine-storage-and-handling-toolkit/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [What’s been updated in the 2020 CDC Vaccine Vaccine Storage and Handling Toolkit?](https://www.vericormed.com/whats-been-updated-in-the-2020-cdc-vaccine-vaccine-storage-and-handling-toolkit/)
+ARTICLE What's Been Updated in the 2020 CDC Vaccine Storage and Handling Toolkit by Luther OlsonJanuary 21, 2020 Earlier this month the CDC updated the "Vaccine Storage and Handling Toolkit" which seems to be an annual thing now (see the history here). The CDC Vaccine Storage and Handling Toolkit outlines the best practices for vaccine storage [Read More](https://www.vericormed.com/whats-been-updated-in-the-2020-cdc-vaccine-vaccine-storage-and-handling-toolkit/)
+Category: [Public Health](https://www.vericormed.com/category/public-health/)
+## Posts pagination
+  * 1
+  * [2](https://www.vericormed.com/author/l-olson/page/2/)
+  * …
+  * [5](https://www.vericormed.com/author/l-olson/page/5/)
+  * [Next](https://www.vericormed.com/author/l-olson/page/2/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

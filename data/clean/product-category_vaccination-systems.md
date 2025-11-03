@@ -1,0 +1,17 @@
+# Mobile Vaccination Systems
+*CLICK* on a Mobile Vaccination System to see more pictures, details and price.
+Default sorting Sort by popularity Sort by average rating Sort by latest Sort by price: low to high Sort by price: high to low
+Showing all 8 results
+  * [![EZ-Refill-Kit-for-VS-2500GS -- VS-EZ2500GS](https://www.vericormed.com/wp-content/uploads/2014/01/EZ-Refill-Kit-for-VS-2500GS-VS-EZ2500GS-324x324.png)EZ Refill Kit for VS-2500GS $0.00 ](https://www.vericormed.com/product/ez-refill-kit-for-vs-2500gs/)[View Product](https://www.vericormed.com/product/ez-refill-kit-for-vs-2500gs/)
+  * [![EZ-Refill-Kit-for-VS-5000 -- VS-EZ5000](https://www.vericormed.com/wp-content/uploads/2014/01/EZ-Refill-Kit-for-VS-5000-VS-EZ5000-324x324.png)EZ Refill Kit for VS-5000 $0.00 ](https://www.vericormed.com/product/ez-refill-kit-for-vs-5000/)[View Product](https://www.vericormed.com/product/ez-refill-kit-for-vs-5000/)
+  * [![EZ-Refill-Kit-for-VS-5000R -- VS-EZ5000R](https://www.vericormed.com/wp-content/uploads/2014/01/EZ-Refill-Kit-for-VS-5000R-VS-EZ5000R-324x324.png)EZ Refill Kit for VS-5000R $0.00 ](https://www.vericormed.com/product/ez-refill-kit-for-vs-5000r/)[View Product](https://www.vericormed.com/product/ez-refill-kit-for-vs-5000r/)
+  * [![EZ-Refill-Kit-for-VS-500GB -- VS-EZ500GB](https://www.vericormed.com/wp-content/uploads/2014/01/EZ-Refill-Kit-for-VS-500GB-VS-EZ500GB-324x324.png)EZ Refill Kit for VS-500GB $0.00 ](https://www.vericormed.com/product/ez-refill-kit-for-vs-500gb/)[View Product](https://www.vericormed.com/product/ez-refill-kit-for-vs-500gb/)
+  * [![Vaccinator 2500-group-open](https://www.vericormed.com/wp-content/uploads/2014/01/Vaccinator-2500-group-open-324x324.png)Vaccinator 2500 Go-System $7,399.00 ](https://www.vericormed.com/product/vaccinator-2500-go-system-vaccination-module-vs-2500gs/)[View Product](https://www.vericormed.com/product/vaccinator-2500-go-system-vaccination-module-vs-2500gs/) This product has multiple variants. The options may be chosen on the product page 
+  * [![Vaccinator 500 Go-Bag -- VS-500GB](https://www.vericormed.com/wp-content/uploads/2014/01/Vaccinator-500-Go-Bag-VS-500GB-324x324.png)Vaccinator 500 Go-Bag $1,399.00 ](https://www.vericormed.com/product/vaccinator-500-go-bag-vaccination-module-vs-500gb/)[View Product](https://www.vericormed.com/product/vaccinator-500-go-bag-vaccination-module-vs-500gb/)
+  * [![Vaccinator-5000 Vaccination System](https://www.vericormed.com/wp-content/uploads/2014/01/Vaccinator-5000-Vaccination-System-324x324.png)Vaccinator 5000 System $14,599.00 ](https://www.vericormed.com/product/vaccinator-5000-system-vaccination-module-vs-5000/)[View Product](https://www.vericormed.com/product/vaccinator-5000-system-vaccination-module-vs-5000/) This product has multiple variants. The options may be chosen on the product page 
+  * [![Vaccinator 5000 wo fridge](https://www.vericormed.com/wp-content/uploads/2014/01/Vaccinator-5000-wo-fridge-324x324.png)Vaccinator 5000 System w/ Refrigerator $14,999.00 ](https://www.vericormed.com/product/vaccinator-5000-system-with-refrigerator-vaccination-module-vs-5000r/)[View Product](https://www.vericormed.com/product/vaccinator-5000-system-with-refrigerator-vaccination-module-vs-5000r/) This product has multiple variants. The options may be chosen on the product page 
+
+Default sorting Sort by popularity Sort by average rating Sort by latest Sort by price: low to high Sort by price: high to low
+Showing all 8 results
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

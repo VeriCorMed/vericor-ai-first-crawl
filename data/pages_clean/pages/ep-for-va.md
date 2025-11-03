@@ -1,0 +1,81 @@
+# Emergency Preparedness for VA
+![EP VA header](https://www.vericormed.com/wp-content/uploads/2022/08/EP-VA-header.png)
+VA Medical Centers must be ready to handle many different types of emergencies that threaten the health and safety of veterans, families, and staff. Since 2006, VeriCor has worked hard to give VAs solutions to their emergency medical needs: triage and treatment systems; incident command systems; alternate treatment sites; storage and distribution of critical medicines and supplies. Click on any of the product lines below for more information. But if you need help finding the right solution, call (608) 526-6901 or send an email to info@vericormed.com.
+**Cool Cube™ PCM Coolers**
+Cool Cube™ PCM coolers passively control the temperature of cargo for an extended period of time (in most cases days!). Six removable panels utilize PCM technology to eliminate the use of ice or electricity, and make maintaining the cold chain easy, safe, and effective. During extremely hot conditions, a Cool Cube™ excels at keeping sensitive product at the needed temperature. But it can also keep product from freezing in dreadfully cold environments. Refrigerated, frozen and controlled room temperature variations available. Click on any of the product lines below for more information. But if you need help finding the right solution, call (608) 526-6901 or send an email to info@vericormed.com.
+[![Cool-Cube-Category-Refrigerated-icon](https://www.vericormed.com/wp-content/uploads/2018/11/cool-cube-category-refrigerated-icon-1.png)](https://www.vericormed.com/refrigerated-2-to-8c/)
+### [2-8°C (36-46°F)](http://www.vericormed.com/refrigerated-2-to-8c/)
+[Learn More ](http://www.vericormed.com/refrigerated-2-to-8c/ "Learn More")
+[![Cool-Cube-Category-Fridge-icon](https://www.vericormed.com/wp-content/uploads/2018/11/cool-cube-category-fridge-icon-1.png)](https://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+### [1-6°C (34-43°F)](http://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+[Learn More ](http://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+[![Cool-Cube-Category-Frozen-icon](https://www.vericormed.com/wp-content/uploads/2018/11/cool-cube-category-frozen-icon-1.png)](https://www.vericormed.com/frozen-50-to-15c/)
+### [-50 to -15°C (-58 to 5°F)](http://www.vericormed.com/frozen-50-to-15c/)
+[Learn More ](http://www.vericormed.com/frozen-50-to-15c/)
+[![Cool-Cube-Category-Room-icon](https://www.vericormed.com/wp-content/uploads/2018/11/cool-cube-category-room-icon-1.png)](https://www.vericormed.com/room-15-to-25c-20-to-24c-2/)
+### [20-24°C (68-75°F)](http://www.vericormed.com/room-15-to-25c-20-to-24c-2/ "Cool Cube™ 96")
+[Learn More ](http://www.vericormed.com/room-15-to-25c-20-to-24c-2/)
+**Specialized Systems**
+Disaster preparedness often includes thinking about uncommon, but necessary, resources. Click on any of the products below for more information. But if you need help finding the right solution, call (608) 526-6901 or send an email to info@vericormed.com.
+[![category-icon-Specialized-EVD](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Specialized-EVD.png)](https://www.vericormed.com/specialized-response/)
+### [EVD Kits](http://www.vericormed.com/specialized-response/)
+[Learn More ](http://www.vericormed.com/specialized-response/ "Learn More")
+[![category-icon-Specialized-peds](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Specialized-peds.png)](https://www.vericormed.com/specialized-response/)
+### [Pediatric Kits](http://www.vericormed.com/specialized-response/)
+[Learn More ](http://www.vericormed.com/specialized-response/)
+[![category-icon-Specialized-DUV](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Specialized-DUV.png)](https://www.vericormed.com/specialized-response/)
+### [VA DUV Kits](http://www.vericormed.com/specialized-response/)
+[Learn More ](http://www.vericormed.com/specialized-response/)
+[![category-icon-Specialized-O2](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Specialized-O2.png)](https://www.vericormed.com/specialized-response/)
+### [Oxygen Distribution Kits](http://www.vericormed.com/specialized-response/ "Cool Cube™ 96")
+[Learn More ](http://www.vericormed.com/specialized-response/)
+**Modularized Systems**
+Response-Friendly® patient surge systems are mobile and robust enough to be established near an incident or expand to an existing medical facility in the event of a sudden patient surge. In the wake of a disaster, these complete, organized, mobile systems increase patient capacity quickly and enable healthcare providers to work efficiently. Click on any of the product lines below for more information. But if you need help finding the right solution, call (608) 526-6901 or send an email to info@vericormed.com.
+[![category-icon-System-TT](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-System-TT.png)](https://www.vericormed.com/triage-and-treatment/)
+### [Hospital Triage & Treatment](http://www.vericormed.com/triage-and-treatment/)
+[Learn More ](http://www.vericormed.com/triage-and-treatment/ "Learn More")
+[![category-icon-System-ACS](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-System-ACS.png)](https://www.vericormed.com/alternate-care-site/)
+### [Alternate Care Site (ACS)](http://www.vericormed.com/alternate-care-site/)
+[Learn More ](http://www.vericormed.com/alternate-care-site/)
+[![category-icon-System-ER](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-System-ER.png)](https://www.vericormed.com/mobile-emergency-room/)
+### [Mobile ER](http://www.vericormed.com/mobile-emergency-room/)
+[Learn More ](http://www.vericormed.com/mobile-emergency-room/)
+[![category-icon-System-PFC](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-System-PFC.png)](https://www.vericormed.com/pan-flu-cache/)
+### [Pan-Flu Cache](http://www.vericormed.com/pan-flu-cache/ "Cool Cube™ 96")
+[Learn More ](http://www.vericormed.com/pan-flu-cache/)
+**Vaccination Kits**
+The Vaccinator Line of vaccination kits is made up of prepackaged modules ready for initiatives of 500 to 5,000 people…just add staff and vaccine! All necessary supplies for a successful mobile clinic are contained within a complete Response-Friendly™ vaccination system. An included SmartBook™ contains all of the critical data (descriptions, locations, lot numbers, expiration dates, storage parameters, etc.) and makes the management of supplies easy. Simplify the next off-site vaccination clinic with this simple system of supply organization.
+[![category-icon-VS-500GB](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-VS-500GB.png)](https://www.vericormed.com/vaccination-systems/)
+### [Small Clinics](http://www.vericormed.com/vaccination-systems/)
+[Learn More ](http://www.vericormed.com/vaccination-systems/ "Learn More")
+[![category-icon-VS-2500GS](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-VS-2500GS.png)](https://www.vericormed.com/vaccination-systems/)
+### [Medium Initiatives](http://www.vericormed.com/vaccination-systems/)
+[Learn More ](http://www.vericormed.com/vaccination-systems/)
+[![category-icon-VS-5000](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-VS-5000.png)](https://www.vericormed.com/vaccination-systems/)
+### [Large Responses](http://www.vericormed.com/vaccination-systems/)
+[Learn More ](http://www.vericormed.com/vaccination-systems/)
+[![category-icon-VS-5000R](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-VS-5000R.png)](https://www.vericormed.com/vaccination-systems/)
+### [Large Temp Control](http://www.vericormed.com/vaccination-systems/ "Cool Cube™ 96")
+[Learn More ](http://www.vericormed.com/vaccination-systems/)
+**Mobilized Medical**
+Disasters don’t always happen in a convenient place. Mobilized assets can be the lifeline of the casualties. VeriCor prides itself on the mobilization of assets for the emergency preparedness community. Check out the product lines below for more information. But if you need help finding another solution, call (608) 526-6901 or send an email to info@vericormed.com.
+[![category-icon-Mobilized-beds](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Mobilized-beds.png)](https://www.vericormed.com/response-beds/)
+### [EP Beds](http://www.vericormed.com/response-beds/)
+[Learn More ](http://www.vericormed.com/response-beds/ "Learn More")
+[![category-icon-Mobilized-racks](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Mobilized-racks.png)](https://www.vericormed.com/racks/)
+### [EP Beds](http://www.vericormed.com/response-beds/)
+[Learn More ](http://www.vericormed.com/response-beds/ "Learn More")
+[![category-icon-Mobilized-trailers](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-Mobilized-trailers.png)](https://www.vericormed.com/response-trailers/)
+### [Trailers](http://www.vericormed.com/response-trailers/)
+[Learn More ](http://www.vericormed.com/response-trailers/)
+[![image-not-yet-available](https://www.vericormed.com/wp-content/uploads/2019/01/image-not-yet-available.jpg)](https://www.vericormed.com/medical-cases/)
+### [Storage/Organization](http://www.vericormed.com/medical-cases/)
+[Learn More ](http://www.vericormed.com/medical-cases/)
+**Mobile Medical Kits**
+A Response-Friendly™ MedKit provides care-specific supplies in a compact, pre-packaged module. Roll (or carry) the MedKit to the needed location and set it up within a minute to provide the medical care needed. Easy visibility and quick access to essential emergency supplies replaces incident chaos with precise organization and efficiency.
+[![category-icon-MedKits-all](https://www.vericormed.com/wp-content/uploads/2018/11/category-icon-MedKits-all.png)](https://www.vericormed.com/medkits/)
+### [All MedKits](http://www.vericormed.com/medkits/)
+[Learn More ](http://www.vericormed.com/medkits/ "Learn More")
+![have-questions-750x273](https://www.vericormed.com/wp-content/uploads/2019/11/have-questions-750x273.png)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

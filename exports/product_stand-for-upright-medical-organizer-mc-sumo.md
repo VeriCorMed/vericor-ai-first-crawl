@@ -1,0 +1,453 @@
+Call 608-526-6901 to check the lead time for ANY time-sensitive need! [Dismiss](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+[Skip to navigation](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#site-navigation) [Skip to content](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#content)
+[![logo + RF 2023](https://www.vericormed.com/wp-content/uploads/2023/01/cropped-logo-RF-2023.png)](https://www.vericormed.com/)
+  * [Customer Care: 608.526.6901](https://www.vericormed.com/contact-vericor-medical-systems/)
+  * [Price List](https://www.vericormed.com/download-pdf/vericor-official-price-list-5-9-2022/)
+  * [How to Order Products](https://www.vericormed.com/how-to-order/)
+
+
+Search for: Search
+Search for: Search
+Menu [Skip Navigation](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-main-1078-primary-2-skipnav)
+  * [Cold Chain Management](https://www.vericormed.com/cold-chain-management/)
+    * SELECT A CATEGORY
+    * ... or SELECT A PURPOSE (Payload)
+    * [Refrigerated 2º to 8º C](https://www.vericormed.com/refrigerated-2-to-8c/)
+      * [Cool Cube™ 03 (VT-03)](https://www.vericormed.com/product/cool-cube-03-at-fridge-temperatures-vt-03-vaccine-transport-cooler/)
+      * [Cool Cube™ 08 (VT-08)](https://www.vericormed.com/product/cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerated-temperatures-fresh-vaccine-vt-08/)
+      * [Cool Cube™ 28 (VT-28)](https://www.vericormed.com/product/cooler-cool-cube-28-vaccine-transport-cooler-at-refrigerated-temperatures-fresh-vaccine-vt-28/)
+      * [Cool Cube™ 96 (VT-96)](https://www.vericormed.com/product/cool-cube-96-vaccine-transport-cooler-at-refrigerated-temperatures-for-fresh-vaccine-vt-96/)
+    * [Room 15° to 25°C | 20° to 24°C](https://www.vericormed.com/room-15-to-25c-20-to-24c/)
+      * [Cool Cube™ 03 (RT-03)](https://www.vericormed.com/product/cool-cube-03-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-03/)
+      * [Cool Cube™ 08 (RT-08)](https://www.vericormed.com/product/cool-cube-08-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-08/)
+      * [Cool Cube™ 28 (RT-28)](https://www.vericormed.com/product/cool-cube-28-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-28/)
+      * [Cool Cube™ 96 (RT-96)](https://www.vericormed.com/product/cool-cube-96-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-96/)
+    * [Additional/Replacement Parts](https://www.vericormed.com/small-medium-large-cool-cube-components/)
+      * [Cool Cube™ 03](https://www.vericormed.com/parts-for-cool-cube-03-models/)
+      * [Cool Cube™ 08](https://www.vericormed.com/parts-for-cool-cube-08-models/)
+      * [Cool Cube™ 28](https://www.vericormed.com/parts-for-cool-cube-28-models/)
+      * [Cool Cube™ 96](https://www.vericormed.com/parts-for-cool-cube-96-models/)
+    * [Cool Cube™ Overview Videos](https://www.vericormed.com/cool-cube-overview-videos/)
+      * [03 Overview](https://www.vericormed.com/cool-cube-overview-videos/#03-overview)
+      * [08 Overview](https://www.vericormed.com/cool-cube-overview-videos/#08-overview)
+      * [28 Overview](https://www.vericormed.com/cool-cube-overview-videos/#28-overview)
+      * [96 Overview](https://www.vericormed.com/cool-cube-overview-videos/#96-overview)
+    * [ ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-medicine.png) ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-medicine-hover.png) Vaccine & Medicine ](https://www.vericormed.com/refrigerated-2-to-8c/)
+    * [ ![ico-vaccine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-vaccine.png) ![ico-vaccine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-vaccine-hover.png) Frozen Vaccine & FFP ](https://www.vericormed.com/frozen-50-to-15c/)
+    * [Fridge 1° to 10°C | 1° to 6°C](https://www.vericormed.com/fridge-1-to-10c-1-to-6c)
+      * [Cool Cube™ 03 (BT-03)](https://www.vericormed.com/product/cool-cube-03-blood-products-transport-cooler-at-refrigerator-temperatures-for-blood-products-bt-03/)
+      * [Cool Cube™ 08 (BT-08)](https://www.vericormed.com/product/cool-cube-08-blood-products-transport-cooler-at-fridge-temps-for-blood-products-bt-08/)
+      * [Cool Cube™ 28 (BT-28)](https://www.vericormed.com/product/cool-cube-28-blood-products-transport-cooler-at-fridge-temps-for-blood-products-bt-28/)
+      * [Cool Cube™ 96 (BT-96)](https://www.vericormed.com/product/cool-cube-96-blood-transport-cooler-at-fridge-temps-bt-96/)
+    * [Lab Freezer -50° to -15°C](https://www.vericormed.com/frozen-50-to-15c/)
+      * [Cool Cube™ 03 (FT-03)](https://www.vericormed.com/product/cool-cube-03-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-03/)
+      * [Cool Cube™ 08 (FT-08)](https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/)
+      * [Cool Cube™ 28 (FT-28)](https://www.vericormed.com/product/cool-cube-28-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-28/)
+      * [Cool Cube™ 96 (FT-96)](https://www.vericormed.com/product/cool-cube-96-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-96/)
+    * [Cool Cube™ Accessories](https://www.vericormed.com/monitoring-devices/)
+      * [Basic Temp Monitor](https://www.vericormed.com/monitoring-devices/#basic)
+      * [Digital Data Logging](https://www.vericormed.com/monitoring-devices/#data-logging)
+      * [Cloud Monitoring/Data Logging](https://www.vericormed.com/monitoring-devices/#cloud-monitoring)
+      * [Cool Cube™ Transport Cart](https://www.vericormed.com/product/cool-cube-transport-cart/)
+    * [Cool Cube™ Training Videos](https://www.vericormed.com/cool-cube-training-videos)
+      * [Refrigerator/Fridge Prep](https://www.vericormed.com/cool-cube-training-videos/#refrigerated-videos)
+      * [Lab Freezer Prep](https://www.vericormed.com/cool-cube-training-videos/#frozen-videos)
+      * [Room Temps Prep](https://www.vericormed.com/cool-cube-training-videos/#room-temps-videos)
+      * [Corded Probe Integration](https://www.vericormed.com/cool-cube-training-videos/#1637067100515-b609dc06-770f)
+    * [ ![ico-blood](https://www.vericormed.com/wp-content/uploads/2018/07/icon-blood.png) ![ico-blood](https://www.vericormed.com/wp-content/uploads/2018/07/icon-blood-hover.png) Blood Products ](https://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+    * [ ![](https://www.vericormed.com/wp-content/uploads/2018/07/ico-bio.png) ![](https://www.vericormed.com/wp-content/uploads/2018/07/ico-bio-hover.png) FFPE, Platelets & Biospecimens ](https://www.vericormed.com/room-15-to-25c-20-to-24c/)
+  * [Emergency Preparedness](https://www.vericormed.com/emergency-preparedness/)
+    * SELECT A CATEGORY
+    * ... or SELECT AN INDUSTRY
+    * [Patient Surge Systems](https://www.vericormed.com/medical-surge-capacity/)
+      * [Triage and Treatment](https://www.vericormed.com/triage-and-treatment/)
+      * [Alternate Care Site](https://www.vericormed.com/alternate-care-site/)
+      * [Mobile Emergency Room](https://www.vericormed.com/mobile-emergency-room/)
+      * [Pan-Flu Cache](https://www.vericormed.com/pan-flu-cache/)
+    * [Vaccination Kits](https://www.vericormed.com/vaccination-systems/)
+      * [500 People](https://www.vericormed.com/product/vaccinator-500-go-bag-vaccination-module-vs-500gb/)
+      * [2,500 People](https://www.vericormed.com/product/vaccinator-2500-go-system-vaccination-module-vs-2500gs/)
+      * [5,000 People (w/o fridge)](https://www.vericormed.com/product/vaccinator-5000-system-vaccination-module-vs-5000/)
+      * [5,000 People (w/ fridge)](https://www.vericormed.com/product/vaccinator-5000-system-with-refrigerator-vaccination-module-vs-5000r/)
+    * [Medical Kits](https://www.vericormed.com/medkits/)
+      * [Burn Care](https://www.vericormed.com/product/burn-care-medical-kit-module-mk-bc/)
+      * [Examination](https://www.vericormed.com/product/examination-medkit-mk-e/)
+      * [Wound Care](https://www.vericormed.com/product/wound-care-medkit-mk-wc/)
+      * [More…](https://www.vericormed.com/medkits/)
+    * [ ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-public-health.png) ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-public-health-hover.png) Public Health ](https://www.vericormed.com/emergency-preparedness-products/)
+    * [ ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-healthcare.png) ![ico-medicine](https://www.vericormed.com/wp-content/uploads/2018/07/ico-healthcare-hover.png) Healthcare ](https://www.vericormed.com/ep-for-hc/)
+    * [Specialized Response](https://www.vericormed.com/specialized-response/)
+      * [Infectious Disease PPE](https://www.vericormed.com/specialized-response/)
+      * [Pediatric](https://www.vericormed.com/specialized-response/#pediatric)
+      * [VA DUV](https://www.vericormed.com/specialized-response/#va-duv)
+      * [Oxygen Distribution](https://www.vericormed.com/specialized-response/#oxygen-distribution)
+    * [Mobilized Medical](https://www.vericormed.com/mobilized-medical/)
+      * [Beds](https://www.vericormed.com/response-beds/)
+      * [Racks](https://www.vericormed.com/racks/)
+      * [Trailers](https://www.vericormed.com/response-trailers/)
+    * [ ![ico-va](https://www.vericormed.com/wp-content/uploads/2018/07/ico-va.png) ![ico-va](https://www.vericormed.com/wp-content/uploads/2018/07/ico-va-hover.png) VA ](https://www.vericormed.com/ep-for-va/)
+    * [ ![ico-em](https://www.vericormed.com/wp-content/uploads/2018/07/ico-em.png) ![ico-em](https://www.vericormed.com/wp-content/uploads/2018/07/icon-em-hover.png) Emergency Management ](https://www.vericormed.com/emergency-response/)
+  * [Storage/Organization](https://www.vericormed.com/medical-cases/)
+    * SELECT A CATEGORY
+    * ... or SELECT A PURPOSE
+    * [Bulk Storage](https://www.vericormed.com/bulk-storage/)
+      * [Medical Equipment Chest](https://www.vericormed.com/product/medical-equipment-chest-mc-ec/)
+      * [Wheeled Medical Case](https://www.vericormed.com/product/medical-case-mc-1/)
+      * [Litter Equipment Organizer](https://www.vericormed.com/product/litter-equipment-organizer-mc-leo/)
+      * [More…](https://www.vericormed.com/bulk-storage/)
+    * [Mobile Medical Workstations](https://www.vericormed.com/mobile-medical-workstations/)
+      * [Incident Command (HICS)](https://www.vericormed.com/product/hospital-incident-command-station/)
+      * [24″ Workstation](https://www.vericormed.com/product/24-workstation-with-3-drawers-and-table-mw-24/)
+      * [42” Workstation w/ Fridge](https://www.vericormed.com/product/42-workstation-with-refrigerator-3-drawers-and-table-mw-42r/)
+      * [More…](https://www.vericormed.com/mobile-medical-workstations/)
+    * [Partitioned/Drawers](https://www.vericormed.com/medical-supply-organizers/)
+      * [Go-Bag Duffle](https://www.vericormed.com/product/go-bag-bag/)
+      * [Upright Medical Organizer (UMO)](https://www.vericormed.com/product/upright-medical-organizer-mc-umo-medical-roll-pack/)
+      * [Medical Organizer w/ 4 Drawers & Table](https://www.vericormed.com/product/medical-organizer-with-4-drawers-and-table-mc-mo/)
+      * [More…](https://www.vericormed.com/medical-supply-organizers/)
+    * [ ![ico-warehouse](https://www.vericormed.com/wp-content/uploads/2018/07/ico-warehouse.png) ![ico-warehouse](https://www.vericormed.com/wp-content/uploads/2018/07/ico-warehouse-hover.png) Warehouse Storage ](https://www.vericormed.com/bulk-storage/)
+    * [ ![ico-supply-organization](https://www.vericormed.com/wp-content/uploads/2018/07/ico-supply.png) ![ico-supply-organization](https://www.vericormed.com/wp-content/uploads/2018/07/ico-supply-hover.png) Supply Organization ](https://www.vericormed.com/medical-supply-organizers/)
+  * [Services](https://www.vericormed.com/services/)
+    * [ ![ico-cache](https://www.vericormed.com/wp-content/uploads/2018/07/ico-cache.png) ![ico-cache](https://www.vericormed.com/wp-content/uploads/2018/07/ico-cache-hover.png) Medical Cache Conversion ](https://www.vericormed.com/medical-stockpile-cache-conversion/)
+    * [ ![ico-replenishment](https://www.vericormed.com/wp-content/uploads/2018/07/ico-replenishment.png) ![ico-replenishment](https://www.vericormed.com/wp-content/uploads/2018/07/ico-replenishment-hover.png) System Replenishment ](https://www.vericormed.com/system-replenishment/)
+    * [ ![ico-training](https://www.vericormed.com/wp-content/uploads/2018/07/ico-training.png) ![ico-training](https://www.vericormed.com/wp-content/uploads/2018/07/ico-training-hover.png) System Training ](https://www.vericormed.com/system-training/)
+  * [Resources](https://www.vericormed.com/resources/)
+    * SELECT A CATEGORY
+    * CONTACT US
+    * [News & Events](https://www.vericormed.com/news-events/)
+      * [Blog – News – Information – Events](https://www.vericormed.com/blog/)
+      * [Shows/Conferences](https://www.vericormed.com/showsconferences/)
+      * [Vaccine Resources](https://www.vericormed.com/flu-vaccine-resource-guide/)
+      * [How to Help](https://www.vericormed.com/how-to-help/)
+    * [VeriCor](https://www.vericormed.com/about-vericor-medical-systems/)
+      * [Contact Information Page](https://www.vericormed.com/contact-vericor-medical-systems/)
+      * [History](https://www.vericormed.com/the-vericor-team/)
+      * [Legal Information Page](https://www.vericormed.com/legal/)
+      * [Our W-9](https://www.vericormed.com/download-pdf/vericor-w-9-signed-pdf/)
+    * [Employment Opportunities](https://www.vericormed.com/employment/)
+    * [ ![ico-phone](https://www.vericormed.com/wp-content/uploads/2018/07/ico-phone.png) ![ico-phone](https://www.vericormed.com/wp-content/uploads/2018/07/ico-phone-hover.png) 608-526-6901 ](tel:+18664696019)
+    * [ ![ico-hours](https://www.vericormed.com/wp-content/uploads/2018/07/ico-hours.png) ![ico-hours](https://www.vericormed.com/wp-content/uploads/2018/07/ico-hours-hover.png) Mon-Thur 7am-4:30pm   
+Fri 8am-12pm (CST) ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+    * [General Information](https://www.vericormed.com/more-information/)
+      * [FAQs](https://www.vericormed.com/frequently-asked-questions/)
+      * [Testimonials](https://www.vericormed.com/testimonials/)
+      * [Cool Cube™ Troubleshooting](https://www.vericormed.com/troubleshooting/)
+      * [More…](https://www.vericormed.com/more-information/)
+    * [Trademarks](https://www.vericormed.com/trademarks-of-vericor-medical-systems/)
+      * [Response-Friendly™](https://www.vericormed.com/response-friendly/)
+      * [Cool Cube™](https://www.vericormed.com/cool-cube-transport-coolers/)
+      * [SmartBook™](https://www.vericormed.com/smartbook-system-operations-manual/)
+      * [More…](https://www.vericormed.com/trademarks-of-vericor-medical-systems/)
+    * ![ico-email](https://www.vericormed.com/wp-content/uploads/2018/07/ico-email.png) ![ico-email](https://www.vericormed.com/wp-content/uploads/2018/07/ico-email-hover.png) info@vericormed.com
+    * [ ![ico-fax](https://www.vericormed.com/wp-content/uploads/2018/07/ico-fax.png) ![ico-fax](https://www.vericormed.com/wp-content/uploads/2018/07/ico-fax-hover.png) 608-399-1740 (fax) ](https://www.vericormed.com/contact-vericor-medical-systems/)
+  * [Shop](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+    * [2-8°C Coolers (Vaccine/Medication)](https://www.vericormed.com/refrigerated-2-to-8c/)
+    * [1-10°C Coolers (Blood Products)](https://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+    * [-50 to -15°C Coolers (Varicella, etc.)](https://www.vericormed.com/frozen-50-to-15c/)
+    * [15-25°C Coolers (FFPE, meds, etc.)](https://www.vericormed.com/room-15-to-25c-20-to-24c-2/)
+    * [Cool Cube™ Components](https://www.vericormed.com/small-medium-large-cool-cube-components/)
+    * [Temperature Monitoring](https://www.vericormed.com/monitoring-devices/)
+    * [Vaccination Kits](https://www.vericormed.com/vaccination-systems/)
+    * [Workstations](https://www.vericormed.com/mobile-medical-workstations/)
+    * [MedKits (Medical Kits)](https://www.vericormed.com/medkits/)
+    * [Protective Hard Cases](https://www.vericormed.com/protective-hard-cases/)
+    * [Portable Beds](https://www.vericormed.com/response-beds/)
+    * [Rolling Racks](https://www.vericormed.com/racks/)
+    * [Infectious Disease Kits](https://www.vericormed.com/specialized-response/)
+    * [Pediatric Response Kit](https://www.vericormed.com/specialized-response/#pediatric)
+    * [VA DUV Kits](https://www.vericormed.com/specialized-response/#va-duv)
+    * [O2 Distribution Kits](https://www.vericormed.com/specialized-response/#oxygen-distribution)
+
+
+  * [Cold Chain Management](https://www.vericormed.com/cold-chain-management/)Expand child menu
+    * [SELECT A CATEGORY](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [… or SELECT A PURPOSE (Payload)](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [Refrigerated 2º to 8º C](https://www.vericormed.com/refrigerated-2-to-8c/)Expand child menu
+      * [Cool Cube™ 03 (VT-03)](https://www.vericormed.com/product/cool-cube-03-at-fridge-temperatures-vt-03-vaccine-transport-cooler/)
+      * [Cool Cube™ 08 (VT-08)](https://www.vericormed.com/product/cooler-cool-cube-08-vaccine-transport-cooler-at-refrigerated-temperatures-fresh-vaccine-vt-08/)
+      * [Cool Cube™ 28 (VT-28)](https://www.vericormed.com/product/cooler-cool-cube-28-vaccine-transport-cooler-at-refrigerated-temperatures-fresh-vaccine-vt-28/)
+      * [Cool Cube™ 96 (VT-96)](https://www.vericormed.com/product/cool-cube-96-vaccine-transport-cooler-at-refrigerated-temperatures-for-fresh-vaccine-vt-96/)
+    * [Room 15° to 25°C | 20° to 24°C](https://www.vericormed.com/room-15-to-25c-20-to-24c/)Expand child menu
+      * [Cool Cube™ 03 (RT-03)](https://www.vericormed.com/product/cool-cube-03-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-03/)
+      * [Cool Cube™ 08 (RT-08)](https://www.vericormed.com/product/cool-cube-08-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-08/)
+      * [Cool Cube™ 28 (RT-28)](https://www.vericormed.com/product/cool-cube-28-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-28/)
+      * [Cool Cube™ 96 (RT-96)](https://www.vericormed.com/product/cool-cube-96-specimen-transport-cooler-at-controlled-room-temperatures-for-ffpe-biospecimens-rt-96/)
+    * [Additional/Replacement Parts](https://www.vericormed.com/small-medium-large-cool-cube-components/)Expand child menu
+      * [Cool Cube™ 03](https://www.vericormed.com/parts-for-cool-cube-03-models/)
+      * [Cool Cube™ 08](https://www.vericormed.com/parts-for-cool-cube-08-models/)
+      * [Cool Cube™ 28](https://www.vericormed.com/parts-for-cool-cube-28-models/)
+      * [Cool Cube™ 96](https://www.vericormed.com/parts-for-cool-cube-96-models/)
+    * [Cool Cube™ Overview Videos](https://www.vericormed.com/cool-cube-overview-videos/)Expand child menu
+      * [03 Overview](https://www.vericormed.com/cool-cube-overview-videos/#03-overview)
+      * [08 Overview](https://www.vericormed.com/cool-cube-overview-videos/#08-overview)
+      * [28 Overview](https://www.vericormed.com/cool-cube-overview-videos/#28-overview)
+      * [96 Overview](https://www.vericormed.com/cool-cube-overview-videos/#96-overview)
+    * [Vaccine & Medicine Icon](https://www.vericormed.com/refrigerated-2-to-8c/)
+    * [Frozen Vaccine & FFP Icon](https://www.vericormed.com/frozen-50-to-15c-2/)
+    * [Fridge 1° to 10°C | 1° to 6°C](https://www.vericormed.com/fridge-1-to-10c-1-to-6c)Expand child menu
+      * [Cool Cube™ 03 (BT-03)](https://www.vericormed.com/product/cool-cube-03-blood-products-transport-cooler-at-refrigerator-temperatures-for-blood-products-bt-03/)
+      * [Cool Cube™ 08 (BT-08)](https://www.vericormed.com/product/cool-cube-08-blood-products-transport-cooler-at-fridge-temps-for-blood-products-bt-08/)
+      * [Cool Cube™ 28 (BT-28)](https://www.vericormed.com/product/cool-cube-28-blood-products-transport-cooler-at-fridge-temps-for-blood-products-bt-28/)
+      * [Cool Cube™ 96 (BT-96)](https://www.vericormed.com/product/cool-cube-96-blood-transport-cooler-at-fridge-temps-bt-96/)
+    * [Lab Freezer -50° to -15°C](https://www.vericormed.com/frozen-50-to-15c/)Expand child menu
+      * [Cool Cube™ 03 (FT-03)](https://www.vericormed.com/product/cool-cube-03-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-03/)
+      * [Cool Cube™ 08 (FT-08)](https://www.vericormed.com/product/cool-cube-08-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-08/)
+      * [Cool Cube™ 28 (FT-28)](https://www.vericormed.com/product/cool-cube-28-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-28/)
+      * [Cool Cube™ 96 (FT-96)](https://www.vericormed.com/product/cool-cube-96-varicella-medical-transport-cooler-at-frozen-temperatures-also-for-mmrv-zoster-and-ffp-ft-96/)
+    * [Cool Cube™ Accessories](https://www.vericormed.com/monitoring-devices/)Expand child menu
+      * [Basic Temp Monitor](https://www.vericormed.com/monitoring-devices/#basic)
+      * [Digital Data Logging](https://www.vericormed.com/monitoring-devices/#data-logging)
+      * [Cloud Monitoring/Data Logging](https://www.vericormed.com/monitoring-devices/#cloud-monitoring)
+      * [Cool Cube™ Transport Cart](https://www.vericormed.com/product/cool-cube-transport-cart/)
+    * [Cool Cube™ Training Videos](https://www.vericormed.com/cool-cube-training-videos)Expand child menu
+      * [Refrigerator/Fridge Prep](https://www.vericormed.com/cool-cube-training-videos/#refrigerated-videos)
+      * [Lab Freezer Prep](https://www.vericormed.com/cool-cube-training-videos/#frozen-videos)
+      * [Room Temps Prep](https://www.vericormed.com/cool-cube-training-videos/#room-temps-videos)
+      * [Corded Probe Integration](https://www.vericormed.com/cool-cube-training-videos/#1637067100515-b609dc06-770f)
+    * [Blood Products Icon](https://www.vericormed.com/fridge-1-to-10c-1-to-6c)
+    * [Biospecimens Icon](https://www.vericormed.com/room-15-to-25c-20-to-24c/)
+  * [Emergency Preparedness](https://www.vericormed.com/emergency-preparedness/)Expand child menu
+    * [SELECT A CATEGORY](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [… or SELECT AN INDUSTRY](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [Patient Surge Systems](https://www.vericormed.com/medical-surge-capacity/)Expand child menu
+      * [Triage and Treatment](https://www.vericormed.com/triage-and-treatment/)
+      * [Alternate Care Site](https://www.vericormed.com/alternate-care-site/)
+      * [Mobile Emergency Room](https://www.vericormed.com/mobile-emergency-room/)
+      * [Pan-Flu Cache](https://www.vericormed.com/pan-flu-cache/)
+    * [Vaccination Kits](https://www.vericormed.com/vaccination-systems/)Expand child menu
+      * [500 People](https://www.vericormed.com/product/vaccinator-500-go-bag-vaccination-module-vs-500gb/)
+      * [2,500 People](https://www.vericormed.com/product/vaccinator-2500-go-system-vaccination-module-vs-2500gs/)
+      * [5,000 People (w/o fridge)](https://www.vericormed.com/product/vaccinator-5000-system-vaccination-module-vs-5000/)
+      * [5,000 People (w/ fridge)](https://www.vericormed.com/product/vaccinator-5000-system-with-refrigerator-vaccination-module-vs-5000r/)
+    * [Medical Kits](https://www.vericormed.com/medkits/)Expand child menu
+      * [Burn Care](https://www.vericormed.com/product/burn-care-medical-kit-module-mk-bc/)
+      * [Examination](https://www.vericormed.com/product/examination-medkit-mk-e/)
+      * [Wound Care](https://www.vericormed.com/product/wound-care-medkit-mk-wc/)
+      * [More…](https://www.vericormed.com/medkits/)
+    * [Public Health Icon](https://www.vericormed.com/emergency-preparedness-products/)
+    * [Healthcare Icon](https://www.vericormed.com/ep-for-hc/)
+    * [Specialized Response](https://www.vericormed.com/specialized-response/)Expand child menu
+      * [Infectious Disease PPE](https://www.vericormed.com/specialized-response/)
+      * [Pediatric](https://www.vericormed.com/specialized-response/#pediatric)
+      * [VA DUV](https://www.vericormed.com/specialized-response/#va-duv)
+      * [Oxygen Distribution](https://www.vericormed.com/specialized-response/#oxygen-distribution)
+    * [Mobilized Medical](https://www.vericormed.com/mobilized-medical/)Expand child menu
+      * [Beds](https://www.vericormed.com/response-beds/)
+      * [Racks](https://www.vericormed.com/racks/)
+      * [Trailers](https://www.vericormed.com/response-trailers/)
+    * [VA Icon](https://www.vericormed.com/ep-for-va/)
+    * [Emergency Management Icon](https://www.vericormed.com/emergency-response/)
+  * [Storage/Organization](https://www.vericormed.com/medical-cases/)Expand child menu
+    * [SELECT A CATEGORY](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [… or SELECT A PURPOSE](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [Bulk Storage](https://www.vericormed.com/bulk-storage/)Expand child menu
+      * [Medical Equipment Chest](https://www.vericormed.com/product/medical-equipment-chest-mc-ec/)
+      * [Wheeled Medical Case](https://www.vericormed.com/product/medical-case-mc-1/)
+      * [Litter Equipment Organizer](https://www.vericormed.com/product/litter-equipment-organizer-mc-leo/)
+      * [More…](https://www.vericormed.com/bulk-storage/)
+    * [Mobile Medical Workstations](https://www.vericormed.com/mobile-medical-workstations/)Expand child menu
+      * [Incident Command (HICS)](https://www.vericormed.com/product/hospital-incident-command-station/)
+      * [24″ Workstation](https://www.vericormed.com/product/24-workstation-with-3-drawers-and-table-mw-24/)
+      * [42” Workstation w/ Fridge](https://www.vericormed.com/product/42-workstation-with-refrigerator-3-drawers-and-table-mw-42r/)
+      * [More…](https://www.vericormed.com/mobile-medical-workstations/)
+    * [Partitioned/Drawers](https://www.vericormed.com/medical-supply-organizers/)Expand child menu
+      * [Go-Bag Duffle](https://www.vericormed.com/product/go-bag-bag/)
+      * [Upright Medical Organizer (UMO)](https://www.vericormed.com/product/upright-medical-organizer-mc-umo-medical-roll-pack/)
+      * [Medical Organizer w/ 4 Drawers & Table](https://www.vericormed.com/product/medical-organizer-with-4-drawers-and-table-mc-mo/)
+      * [More…](https://www.vericormed.com/medical-supply-organizers/)
+    * [Warehouse Storage](https://www.vericormed.com/bulk-storage/)
+    * [Supply Organization](https://www.vericormed.com/medical-supply-organizers/)
+  * [Services](https://www.vericormed.com/services/)Expand child menu
+    * [Medical Cache Conversion Icon](https://www.vericormed.com/medical-stockpile-cache-conversion/)
+    * [Supply Replenishment](https://www.vericormed.com/medical-supply-replenishment/)
+    * [System Training](https://www.vericormed.com/system-training/)
+  * [Resources](https://www.vericormed.com/resources/)Expand child menu
+    * [SELECT A CATEGORY](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [CONTACT US](https://www.vericormed.com/contact-vericor-medical-systems/)
+    * [News & Events](https://www.vericormed.com/news-events/)Expand child menu
+      * [Blog – News – Information – Events](https://www.vericormed.com/blog/)
+      * [Shows/Conferences](https://www.vericormed.com/showsconferences/)
+      * [Vaccine Resources](https://www.vericormed.com/flu-vaccine-resource-guide/)
+      * [How to Help](https://www.vericormed.com/how-to-help/)
+    * [VeriCor](https://www.vericormed.com/about-vericor-medical-systems/)Expand child menu
+      * [Contact Information Page](https://www.vericormed.com/contact-vericor-medical-systems/)
+      * [History](https://www.vericormed.com/the-vericor-team/)
+      * [Legal Information Page](https://www.vericormed.com/legal/)
+      * [Our W-9](https://www.vericormed.com/download-pdf/vericor-w-9-signed-pdf/)
+    * [Employment Opportunities](https://www.vericormed.com/employment/)
+    * [Phone](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [Hours](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [General Information](https://www.vericormed.com/more-information/)Expand child menu
+      * [FAQs](https://www.vericormed.com/frequently-asked-questions/)
+      * [Testimonials](https://www.vericormed.com/testimonials/)
+      * [Cool Cube™ Troubleshooting](https://www.vericormed.com/troubleshooting/)
+      * [More…](https://www.vericormed.com/more-information/)
+    * [Trademarks](https://www.vericormed.com/trademarks-of-vericor-medical-systems/)Expand child menu
+      * [Response-Friendly™](https://www.vericormed.com/response-friendly/)
+      * [Cool Cube™](https://www.vericormed.com/cool-cube-transport-coolers/)
+      * [SmartBook™](https://www.vericormed.com/smartbook-system-operations-manual/)
+      * [More…](https://www.vericormed.com/trademarks-of-vericor-medical-systems/)
+    * [Email](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+    * [Fax](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#ubermenu-custom_content)
+  * [Shop](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)Expand child menu
+    * [2-8°C Coolers (Vaccine/Medication)](https://www.vericormed.com/refrigerated-2-to-8c/)
+    * [1-10°C Coolers (Blood Products)](https://www.vericormed.com/fridge-1-to-10c-1-to-6c/)
+    * [-50 to -15°C Coolers (Varicella, etc.)](https://www.vericormed.com/frozen-50-to-15c/)
+    * [15-25°C Coolers (FFPE, meds, etc.)](https://www.vericormed.com/room-15-to-25c-20-to-24c-2/)
+    * [Cool Cube™ Components](https://www.vericormed.com/small-medium-large-cool-cube-components/)
+    * [Temperature Monitoring](https://www.vericormed.com/monitoring-devices/)
+    * [Vaccination Kits](https://www.vericormed.com/vaccination-systems/)
+    * [Workstations](https://www.vericormed.com/mobile-medical-workstations/)
+    * [MedKits (Medical Kits)](https://www.vericormed.com/medkits/)
+    * [Protective Hard Cases](https://www.vericormed.com/protective-hard-cases/)
+    * [Portable Beds](https://www.vericormed.com/response-beds/)
+    * [Rolling Racks](https://www.vericormed.com/racks/)
+    * [Infectious Disease Kits](https://www.vericormed.com/specialized-response/)
+    * [Pediatric Response Kit](https://www.vericormed.com/specialized-response/#pediatric)
+    * [VA DUV Kits](https://www.vericormed.com/specialized-response/#va-duv)
+    * [O2 Distribution Kits](https://www.vericormed.com/specialized-response/#oxygen-distribution)
+
+
+  * [ $0.00 0 items ](https://www.vericormed.com/cart/ "View your shopping cart")
+
+
+[ ![Login / Register](https://www.vericormed.com/wp-content/themes/storefront-child/images/person-icon.png) ](https://www.vericormed.com/my-account/)
+[Home](https://www.vericormed.com) / [Medical Cases](https://www.vericormed.com/product-category/medical-organizers-spec-sheets/) / Portable Stand for MC-UMO
+[](javascript:%20void\(0\);)
+![Portable-Stand-for-MC-UMO -- Stand Only](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+![Portable-Stand-for-MC-UMO -- MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-600x600.png)
+![Portable-Stand-for-MC-UMO -- MC-SUMO Assembled and Unassembled](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-Assembled-and-Unassembled-600x600.png)
+![Portable-Stand-for-MC-UMO -- unassembled](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-unassembled-600x600.png)
+![Portable-Stand-for-MC-UMO -- Stand Only](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-Stand-Only-600x600.png)
+![Portable-Stand-for-MC-UMO -- MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-600x600.png)
+![Portable-Stand-for-MC-UMO -- MC-SUMO Assembled and Unassembled](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-Assembled-and-Unassembled-600x600.png)
+![Portable-Stand-for-MC-UMO -- unassembled](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+![Portable-Stand-for-MC-UMO -- Stand Only](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+![Portable-Stand-for-MC-UMO -- MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-600x600.png)
+[](javascript:%20void\(0\);)
+[ ](javascript:%20void\(0\);)
+![Portable-Stand-for-MC-UMO -- MC-SUMO Assembled and Unassembled](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-Assembled-and-Unassembled-100x100.png)
+![Portable-Stand-for-MC-UMO -- unassembled](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-unassembled-100x100.png)
+![Portable-Stand-for-MC-UMO -- Stand Only](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-Stand-Only-100x100.png)
+![Portable-Stand-for-MC-UMO -- MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Portable-Stand-for-MC-UMO-MC-SUMO-100x100.png)
+[ ](javascript:%20void\(0\);) [ ](javascript:%20void\(0\);)
+# Portable Stand for MC-UMO
+For Deploying an Upright Medical Organizer
+SKU: 
+MC-SUMO
+A snap-together stand for hanging VeriCor’s Upright Medical Organizer (MC-UMO). Disassemble it for storage & carrying in its own bag; assemble it quickly & easily anywhere. Lightweight and stable, this is a must-have for any jump bag style organizer.
+$649.00
+Qty:
+[![Protective-Carry-Bag-for-MC-UMO -- MC-BUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Protective-Carry-Bag-for-MC-UMO-MC-BUMO-324x324.png)](https://www.vericormed.com/wp-content/uploads/2014/01/Protective-Carry-Bag-for-MC-UMO-MC-BUMO.png "Protective-Carry-Bag-for-MC-UMO — MC-BUMO")
+####  Protective Carry Bag for MC-UMO [](https://www.vericormed.com/product/protective-carry-bag-for-mc-umo-mc-bumo/)
+A protective carry bag for the MC-UMO to help protect, store and transport the UMO and packed-out product (sold separately). This durable vinyl bag has two large carry handles and wide opening, double-zipper access.
+Add for $139.00
+[![Upright-Medical-Organizer -- MC-UMO](https://www.vericormed.com/wp-content/uploads/2014/01/Upright-Medical-Organizer-MC-UMO-324x324.png)](https://www.vericormed.com/wp-content/uploads/2014/01/Upright-Medical-Organizer-MC-UMO.png "Upright-Medical-Organizer — MC-UMO")
+####  Upright Medical Organizer [](https://www.vericormed.com/product/upright-medical-organizer-mc-umo-medical-roll-pack/)
+An exclusive roll pack organizer for emergency preparedness supplies. Made of durable vinyl, this pack provides to visibility to supplies organized within the zippered pockets. Multiple hanging features allows vertical deployment almost anywhere.
+Add for $799.00
+Portable Stand for MC-UMO quantity
+Add to Order Quote Item
+  * [ Overview ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#tab-technology)
+  * [ Literature ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#tab-support)
+  * [ FAQs ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/#tab-faqs)
+
+
+The Portable Stand for MC-UMO (MC-SUMO) is a stand for hanging vertical organizers such as VeriCor’s Upright Medical Organizer. This portable stand, with its snap-together design, sets-up in under a minute. Machined aluminum ball detents and interchangeable parts enable an easy fit, while the stability straps give it the strength to handle any large, hanging, medical jump bag. It features an intuitive design which assembles quickly, and has high-quality powder-coated parts for years of service. Two stability straps and carry bag included.
+### Technology & Features
+![MC-SUMO magnifying](https://www.vericormed.com/wp-content/uploads/2014/01/MC-SUMO-magnifying.png)
+![tech MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/tech-MC-SUMO.png)
+![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-1-150x150.png)  
+Machined aluminum ball detents make the snap-together design quick and easy.
+![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-2-150x150.png)  
+Two stability straps give it the strength to handle any large, hanging, medical jump bag.
+![](https://www.vericormed.com/wp-content/uploads/2015/10/green-clipart-circle-3-150x150.png)  
+High-quality powder-coating for years of service.
+### Dimensions & Specs
+**In Use:** 73″ x 39″ x 25″   
+**Collapsed:** 29″ x 24″ x 10″   
+**Weight:** 9 lbs.
+![Upright Medical Organizer Stand Dimensions - MC-SUMO](https://www.vericormed.com/wp-content/uploads/2014/01/MC-SUMO-Dims.png)
+![have-questions-plus-number-2](https://www.vericormed.com/wp-content/uploads/2015/10/have-questions-plus-number-2.png)
+[![](https://www.vericormed.com/wp-content/uploads/2017/11/PDF-ICON.jpg)](https://www.vericormed.com/download-pdf/portable-stand-for-mc-umo-mc-sumo-spec-sheet-022719/)
+#### [MC-SUMO Spec Sheet](https://www.vericormed.com/download-pdf/portable-stand-for-mc-umo-mc-sumo-spec-sheet-022719/)
+## FAQs
+### **General FAQ**
+[ l Can credit cards be used for purchasing?  ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Yes, all major credit cards are accepted. 
+[ l What is the ordering process?  ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Order thru this website, GSA, Amazon or email (order@vericormed.com…please reference a quote). For orders over $10,000 please contact us (608-526-6901) to work with a salesperson.
+[ l What information is needed to order via credit card?  ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Name on card, card #, expiration date, security code, billing address.
+[ l Where can these be purchased?  ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Direct from the website, and or on the GSA website. For larger orders or for a formal quote, please call (866) 469-6019.
+[ L Made to Order  ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+This product is made to order. This is a custom made product. Please allow 4 to 6 weeks for delivery. For more details, please call us (866) 469-6019.
+![have-questions-plus-number-2](https://www.vericormed.com/wp-content/uploads/2015/10/have-questions-plus-number-2.png)
+## You may also like…
+  * [![Upright-Medical-Organizer -- MC-UMO](https://www.vericormed.com/wp-content/uploads/2014/01/Upright-Medical-Organizer-MC-UMO-324x324.png)Upright Medical Organizer $799.00 ](https://www.vericormed.com/product/upright-medical-organizer-mc-umo-medical-roll-pack/)[View Product](https://www.vericormed.com/product/upright-medical-organizer-mc-umo-medical-roll-pack/)
+  * [![Protective-Carry-Bag-for-MC-UMO -- MC-BUMO](https://www.vericormed.com/wp-content/uploads/2014/01/Protective-Carry-Bag-for-MC-UMO-MC-BUMO-324x324.png)Protective Carry Bag for MC-UMO $139.00 ](https://www.vericormed.com/product/protective-carry-bag-for-mc-umo-mc-bumo/)[View Product](https://www.vericormed.com/product/protective-carry-bag-for-mc-umo-mc-bumo/)
+
+
+Search for: Search Search for:
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)
+### SIGN ME UP!
+#####  Get special offers, exclusive product news,   
+and event info straight to your inbox.
+Email (required) *
+Select list(s) to subscribe to
+Example: Yes, I would like to receive emails from VeriCor, LLC. (You can unsubscribe anytime)
+Constant Contact Use. Please leave this field blank.
+* * *
+By submitting this form, you are consenting to receive marketing emails from: . You can revoke your consent to receive emails at any time by using the SafeUnsubscribe® link, found at the bottom of every email. [Emails are serviced by Constant Contact](https://www.constantcontact.com/legal/about-constant-contact)
+![ico-phone-footer](https://www.vericormed.com/wp-content/uploads/2018/07/ico-phone-footer-1.png)
+### CUSTOMER CARE
+#####  Call for support or if you have questions.  
+Mon-Thur 7am-4:30pm Fri 8am-12pm (CST)
+[1-608-526-6901](tel:+16085266901)
+PRODUCTS
+  * [Cool Cube™](https://www.vericormed.com/cool-cube-transport-coolers/)
+  * [Monitoring Devices](https://www.vericormed.com/monitoring-devices/)
+  * [Vaccination Kits](https://www.vericormed.com/vaccination-systems/)
+  * [Pan-Flu Cache](https://www.vericormed.com/pan-flu-cache/)
+
+
+.
+  * [Patient Surge Systems](https://www.vericormed.com/medical-surge-capacity/)
+  * [Cases/Organizers](https://www.vericormed.com/medical-cases/)
+  * [Trailers](https://www.vericormed.com/response-trailers/)
+  * [Services](https://www.vericormed.com/services/)
+
+
+SUPPORT
+  * [Contact Us](https://www.vericormed.com/contact-vericor-medical-systems/)
+  * [FAQs](https://www.vericormed.com/frequently-asked-questions/)
+  * [Product Registration](https://www.vericormed.com/register/)
+  * [Official Price List](https://www.vericormed.com/download-pdf/vericor-official-price-list-5-9-2022/)
+
+
+ABOUT VERICOR
+  * [Employment/Jobs](https://www.vericormed.com/employment/)
+  * [Media Room](https://www.vericormed.com/videos-and-slideshows/)
+  * [Distributors/Partners](https://www.vericormed.com/distributors-partners/)
+  * [Shows/Conferences](https://www.vericormed.com/showsconferences/)
+
+
+© VeriCor, LLC 2025   
+[Built with WooCommerce](https://woocommerce.com "WooCommerce - The Best eCommerce Platform for WordPress"). 
+  * [My Account](https://www.vericormed.com/my-account/)
+  * [Search](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Search for: Search
+  * [Cart 0 ](https://www.vericormed.com/cart/)
+
+
+© 2025 VeriCor, LLC
+[YouTube](https://www.youtube.com/channel/UCBaPqZHddGmc7b_RmY9UeXQ) [Pinterest](https://www.pinterest.com/vericormed/) [Twitter](https://twitter.com/vericor) [Facebook](https://www.facebook.com/VeriCor/)
+[![StatCounter - Free Web Tracker and Counter](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)](https://www.statcounter.com/)
+[ ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/) [ ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+Loading Comments...
+You must be [logged in](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/) to post a comment. 
+[ ](https://www.vericormed.com/product/stand-for-upright-medical-organizer-mc-sumo/)
+![](https://pixel.wp.com/g.gif?v=ext&blog=225313269&post=734&tz=-5&srv=www.vericormed.com&j=1%3A15.0&host=www.vericormed.com&ref=&fcp=1208&rand=0.24235387175672918)
+Notifications
+  *[*]: required

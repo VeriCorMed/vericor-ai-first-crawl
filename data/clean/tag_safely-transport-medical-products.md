@@ -1,0 +1,8 @@
+# Tag: Safely Transport Medical Products
+Posted on [April 13, 2016August 30, 2016](https://www.vericormed.com/safely-transport-medical-products/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Safely Transport Medical Products](https://www.vericormed.com/safely-transport-medical-products/)
+Over 7 years ago VeriCor developed a Cool Cube™ for public health departments to have a safe and reliable means to transport vaccine to off-site locations. Today, the Cool Cube™ line of transport coolers have other cold chain management applications such as: Safe transport of vaccine (fresh & frozen), medicine, FFP, blood products, FFPE, platelets, [Read More](https://www.vericormed.com/safely-transport-medical-products/)
+Categories: [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [biospecimens](https://www.vericormed.com/tag/biospecimens/), [blood products](https://www.vericormed.com/tag/blood-products/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Data Loggers](https://www.vericormed.com/tag/data-loggers/), [FFP](https://www.vericormed.com/tag/ffp/), [FFPE](https://www.vericormed.com/tag/ffpe/), [platelets](https://www.vericormed.com/tag/platelets/), [Safely Transport Medical Products](https://www.vericormed.com/tag/safely-transport-medical-products/), [temperature-sensitive products](https://www.vericormed.com/tag/temperature-sensitive-products/), [Vaccination Systems](https://www.vericormed.com/tag/vaccination-systems/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

@@ -1,0 +1,8 @@
+# Tag: It’s a Cool Cube™
+Posted on [February 24, 2021](https://www.vericormed.com/a-feel-good-story-its-a-cool-cube-emergency-preparedness-organizers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [A Feel Good Story | It’s a Cool Cube™ | Emergency Preparedness Organizers](https://www.vericormed.com/a-feel-good-story-its-a-cool-cube-emergency-preparedness-organizers/)
+In this Bi-Weekly Issue In this biweekly issue: 🦠 117 year old beats COVID! 🆒 Control Vaccine Temps 🗃 Emergency Prep Organizers 🦺 Triage & Treat — The Front Line As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) A Feel Good Story [Read More](https://www.vericormed.com/a-feel-good-story-its-a-cool-cube-emergency-preparedness-organizers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [COVID](https://www.vericormed.com/tag/covid/), [Emergency Preparedness Organizers](https://www.vericormed.com/tag/emergency-preparedness-organizers/), [It's a Cool Cube™](https://www.vericormed.com/tag/its-a-cool-cube/), [triage & treatment](https://www.vericormed.com/tag/triage-treatment/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

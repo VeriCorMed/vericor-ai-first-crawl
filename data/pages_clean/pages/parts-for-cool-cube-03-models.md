@@ -1,0 +1,39 @@
+# Parts for Cool Cube™ 03 models
+![Parts for Cool Cube™ 03 models header](https://www.vericormed.com/wp-content/uploads/2022/08/parts-for-cool-cube-03-models-header.png)
+With just a few easy steps, most of the parts and pieces of the Cool Cube™ 03 can be replaced or swapped out. Click on any of the components below for more information. But if you need help finding the right part, call (608) 526-6901 or send an email to info@vericormed.com.
+**Replaceable Parts of the Cool Cube™ 03 (all temperatures)**
+  * [![Refrigerator Temps PCM System for Cool Cube 03 \(6 Panels\)](https://www.vericormed.com/wp-content/uploads/2017/12/refrigerator-temps-pcm-system-for-cool-cube-03-6-panels-324x324.png)Fridge Temps PCM System for Cool Cube™ 03 (6 Panels) $279.00 ](https://www.vericormed.com/product/fridge-temps-pcm-system-for-cool-cube-03-6-panels/)[View Product](https://www.vericormed.com/product/fridge-temps-pcm-system-for-cool-cube-03-6-panels/)
+
+  * [![Lab Freezer PCM System for Cool Cube 03 \(6 Panels\)](https://www.vericormed.com/wp-content/uploads/2017/12/Lab-Freezer-PCM-System-for-Cool-Cube%E2%84%A2-03-6-Panels-hero-324x324.png)Lab Freezer Temps PCM System for Cool Cube™ 03 (6 Panels) $279.00 ](https://www.vericormed.com/product/frozen-temps-pcm-system-for-cool-cube-03-6-panels/)[View Product](https://www.vericormed.com/product/frozen-temps-pcm-system-for-cool-cube-03-6-panels/)
+
+  * [![Room Temps PCM System for Cool Cube 03 \(6 Panels\)](https://www.vericormed.com/wp-content/uploads/2017/12/room-temps-pcm-system-for-cool-cube-03-6-panels-324x324.png)Controlled Room Temps PCM System for Cool Cube™ 03 $279.00 ](https://www.vericormed.com/product/controlled-room-temps-pcm-system-for-cool-cube-03-6-panels/)[View Product](https://www.vericormed.com/product/controlled-room-temps-pcm-system-for-cool-cube-03-6-panels/)
+
+  * [![Refrigerator Temps PCM Panel for Cool Cube 03](https://www.vericormed.com/wp-content/uploads/2017/12/refrigerator-temps-pcm-panel-for-cool-cube-03-324x324.png)Fridge Temps PCM Panel for Cool Cube™ 03 $52.00 ](https://www.vericormed.com/product/fridge-temps-pcm-panel-for-cool-cube-03/)[View Product](https://www.vericormed.com/product/fridge-temps-pcm-panel-for-cool-cube-03/)
+
+  * [![Lab Freezer PCM Panel for Cool Cube 03](https://www.vericormed.com/wp-content/uploads/2017/12/Lab-Freezer-PCM-Panel-for-Cool-Cube%E2%84%A2-03-hero-324x324.png)Lab Freezer Temps PCM Panel for Cool Cube™ 03 $52.00 ](https://www.vericormed.com/product/frozen-temps-pcm-panel-for-cool-cube-03/)[View Product](https://www.vericormed.com/product/frozen-temps-pcm-panel-for-cool-cube-03/)
+
+  * [![Room Temps PCM Panel for Cool Cube 03](https://www.vericormed.com/wp-content/uploads/2017/12/room-temps-pcm-panel-for-cool-cube-03-324x324.png)Controlled Room Temps PCM Panel for Cool Cube™ 03 $54.00 ](https://www.vericormed.com/product/controlled-room-temps-pcm-panel-for-cool-cube-03/)[View Product](https://www.vericormed.com/product/controlled-room-temps-pcm-panel-for-cool-cube-03/)
+
+  * [![Outer-Bag-of-Cool-Cube-03-CC-Case-03](https://www.vericormed.com/wp-content/uploads/2017/12/outer-bag-of-cool-cube-03-cc-case-03-324x324.png)Outer Case of Cool Cube™ 03 $119.00 ](https://www.vericormed.com/product/outer-case-of-cool-cube-03/)[View Product](https://www.vericormed.com/product/outer-case-of-cool-cube-03/)
+
+  * [![Temp-Shield-Insulation-System-of-Cool-Cube-03-\(Complete-Set\)-CC-VIP-03](https://www.vericormed.com/wp-content/uploads/2017/12/temp-shield-insulation-system-of-cool-cube-03-complete-set-cc-vip-03-324x324.png)Temp-Shield™ Insulation System of Cool Cube™ 03 (Full Set) $309.00 ](https://www.vericormed.com/product/temp-shield-insulation-system-of-cool-cube-03-complete-set/)[View Product](https://www.vericormed.com/product/temp-shield-insulation-system-of-cool-cube-03-complete-set/)
+
+  * [![Temp-Shield Insulation Lid of Cool Cube 03](https://www.vericormed.com/wp-content/uploads/2018/11/temp-shield-insulation-lid-of-cool-cube-03-cc-viplid-03-324x324.png)Temp-Shield™ Insulation Lid of Cool Cube™ 03 $64.00 ](https://www.vericormed.com/product/temp-shield-insulation-lid-of-cool-cube-03/)[View Product](https://www.vericormed.com/product/temp-shield-insulation-lid-of-cool-cube-03/)
+
+  * [![Cool Cube Transport Cart](https://www.vericormed.com/wp-content/uploads/2020/05/cool-cube-transport-cart-324x324.png)Cool Cube™ Transport Cart $49.00 ](https://www.vericormed.com/product/cool-cube-transport-cart/)[View Product](https://www.vericormed.com/product/cool-cube-transport-cart/)
+
+![stamp-validated-s](https://www.vericormed.com/wp-content/uploads/2015/10/stamp-validated-s.png)
+## Easy & Safe Pack-Out
+![Step 1 Remove PCM from Cool Cube™](https://www.vericormed.com/wp-content/uploads/2015/10/step-1b-Remove-180x217.png)
+Remove
+![Step 2 Prep PCM Panels](https://www.vericormed.com/wp-content/uploads/2015/10/step-2-Condition-180x217.png)
+Prep
+![Step 3: Assemble Cool Cube™](https://www.vericormed.com/wp-content/uploads/2015/10/step-3b-Assemble-180x217.png)
+Assemble
+![Step 4: Pack-Out Cool Cube™](https://www.vericormed.com/wp-content/uploads/2015/10/step-4b-Pack-Out-180x217.png)
+Pack-Out 
+![Step 5: Close Cool Cube™](https://www.vericormed.com/wp-content/uploads/2015/10/step-5b-Close-180x217.png)
+Close
+![have-questions-plus-number-2](https://www.vericormed.com/wp-content/uploads/2015/10/have-questions-plus-number-2.png)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

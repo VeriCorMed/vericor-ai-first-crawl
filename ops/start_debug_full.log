@@ -1,0 +1,13 @@
+--- NEW RUN Wed 10/15/2025  7:00:42.20 --- 
+[DEBUG] Running from C:\Users\Finn\Projects\vericor-crawl 
+[INFO] Using venv: venv 
+[INFO] Loading environment vars from env\.env 
+[INFO] Python path: 
+C:\Users\Finn\Projects\vericor-crawl\venv\Scripts\python.exe
+C:\Users\Finn\AppData\Local\Programs\Python\Python313\python.exe
+C:\Users\Finn\AppData\Local\Microsoft\WindowsApps\python.exe
+Python 3.13.5
+[INFO] WC_SITE=https://www.vericormed.com 
+[INFO] WC_CK=ck_5b1d4b82af1c1a492101397cc680b77ee86cf892 
+[INFO] WC_CS=cs_06149e7da3d0dfec43fb9fb214c3b462c57496ce 
+[INFO] Environment ready. 

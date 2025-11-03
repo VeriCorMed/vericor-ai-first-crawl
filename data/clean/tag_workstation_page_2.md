@@ -1,0 +1,12 @@
+# Tag: Workstation
+Posted on [February 20, 2018October 28, 2024](https://www.vericormed.com/2018-cdc-toolkit-fst-system-healthcare-vaccinator-line/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [2018 CDC Toolkit | FST System for Healthcare | The VACCINATOR Line](https://www.vericormed.com/2018-cdc-toolkit-fst-system-healthcare-vaccinator-line/)
+2018 CDC ToolkitIn Case You Missed ItThis was one of our most popular posts/emails last month, so we thought we would share it again in case you missed it. Thank you to those of you who took the time to thank us…it encourages us to provide more of this value-related content.Last month the CDC published [Read More](https://www.vericormed.com/2018-cdc-toolkit-fst-system-healthcare-vaccinator-line/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [CDC](https://www.vericormed.com/tag/cdc/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Mobile Emergency Room](https://www.vericormed.com/tag/mobile-emergency-room/), [Mobile ER](https://www.vericormed.com/tag/mobile-er/), [Supplies](https://www.vericormed.com/tag/supplies/), [VACCINATOR](https://www.vericormed.com/tag/vaccinator/), [Vaccine Storage & Handling Toolkit](https://www.vericormed.com/tag/vaccine-storage-handling-toolkit/), [Workstation](https://www.vericormed.com/tag/workstation/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/tag/workstation/)
+  * [1](https://www.vericormed.com/tag/workstation/)
+  * 2
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

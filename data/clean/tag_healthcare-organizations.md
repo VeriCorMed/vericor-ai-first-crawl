@@ -1,0 +1,8 @@
+# Tag: healthcare organizations
+Posted on [March 25, 2020June 1, 2020](https://www.vericormed.com/overcome-coordination-and-communication-barriers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Overcome Coordination and Communication Barriers](https://www.vericormed.com/overcome-coordination-and-communication-barriers/)
+![Overcome Coordination and Communication Barriers](https://www.vericormed.com/wp-content/uploads/2020/03/Overcome-Coordination-and-Communication-Barriers-172x300.jpg) Overcome Coordination/Communication Barriers A FREE platform for all EMS & healthcare organizations. This is not an affiliate nor does VeriCor have any connection to this company—it's just a nice gesture by this company that we wanted to recognize and spread the word about to those of you that might find it useful. Pulsara is offering [Read More](https://www.vericormed.com/overcome-coordination-and-communication-barriers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Communication](https://www.vericormed.com/tag/communication/), [Coordination](https://www.vericormed.com/tag/coordination/), [EMS](https://www.vericormed.com/tag/ems/), [healthcare organizations](https://www.vericormed.com/tag/healthcare-organizations/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

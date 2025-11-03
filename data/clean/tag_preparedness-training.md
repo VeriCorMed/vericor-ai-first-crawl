@@ -1,0 +1,9 @@
+# Tag: Preparedness Training
+Posted on [September 19, 2018October 28, 2024](https://www.vericormed.com/quickly-triage-an-mci-cool-cube-faq-preparedness-training/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Quickly Triage an MCI | Cool Cube™ FAQ | Preparedness Training](https://www.vericormed.com/quickly-triage-an-mci-cool-cube-faq-preparedness-training/)
+![On Scene Treatment and Triage](https://www.vericormed.com/wp-content/uploads/2018/07/Triage-Treat-On-Scene-300x200.jpg)
+Quickly Triage an MCIA Disaster Planning SystemIncidences that can that can overwhelm or disrupt the care capacity of your healthcare system can be prepared for. A VeriCor Triage & Treatment System manages and equips responders with the resources to triage AND treat victims of a mass casualty incident (MCI). Color-coded mobile cases and care-specific hanging [Read More](https://www.vericormed.com/quickly-triage-an-mci-cool-cube-faq-preparedness-training/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Disaster Planning System](https://www.vericormed.com/tag/disaster-planning-system/), [PCM](https://www.vericormed.com/tag/pcm/), [Phase Change Material](https://www.vericormed.com/tag/phase-change-material/), [Preparedness Training](https://www.vericormed.com/tag/preparedness-training/), [triage & treatment](https://www.vericormed.com/tag/triage-treatment/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

@@ -1,0 +1,9 @@
+# Tag: VeriCor Mobile Vaccination Systems
+Posted on [August 16, 2017](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Vaccine Transport | Make Vaccinations Easier | Pan-Flu Medical Cache](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/)
+![Safe, Qualified Transport, Not Just for Vaccine](https://www.vericormed.com/wp-content/uploads/2017/07/cc-300x200.jpg)
+Vaccine TransportCoolers Perfect for Fall Flu ClinicsCan’t find your cooler? Don’t want to mess with ice? Want something lighter? Need something better? The VeriCor Cool Cube™ is growing in popularity for a number of reasons. But the main thing is…it works. Three super-cool features (the user-friendly case, the high-performance insulation, and the slick-removable panels) are [Read More](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [coolers](https://www.vericormed.com/tag/coolers/), [healthcare](https://www.vericormed.com/tag/healthcare/), [influenza pandemic](https://www.vericormed.com/tag/influenza-pandemic/), [Make Vaccinations Easier](https://www.vericormed.com/tag/make-vaccinations-easier/), [Pan-Flu Medical Cache](https://www.vericormed.com/tag/pan-flu-medical-cache/), [vaccine transport](https://www.vericormed.com/tag/vaccine-transport/), [VeriCor Mobile Vaccination Systems](https://www.vericormed.com/tag/vericor-mobile-vaccination-systems/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

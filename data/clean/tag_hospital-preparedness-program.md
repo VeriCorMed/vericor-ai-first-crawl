@@ -1,0 +1,18 @@
+# Tag: Hospital Preparedness Program
+Posted on [September 20, 2016October 28, 2024](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Healthcare Emergency Preparedness Requirements](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Healthcare providers, local health departments, emergency management agencies and healthcare coalitions are all affected by the recent publication of the “Final Emergency Preparedness Rule” by the CMS. Haven’t seen it yet? The Federal Register webpage is here (09/16/2016 official document). Now is the time to strengthen your emergency preparedness plan for both natural and man-made disasters. [Read More](https://www.vericormed.com/healthcare-emergency-preparedness-requirements/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Emergency Preparedness Products](https://www.vericormed.com/tag/emergency-preparedness-products/), [Final Emergency Preparedness Rule](https://www.vericormed.com/tag/final-emergency-preparedness-rule/), [Hospital Preparedness Program](https://www.vericormed.com/tag/hospital-preparedness-program/)
+Posted on [June 17, 2014July 3, 2014](https://www.vericormed.com/last-minute-hpp-options/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Last-Minute HPP Options](https://www.vericormed.com/last-minute-hpp-options/)
+BP2 ends June 30 – What do you need? Are you looking for a quick, easy way to improve your organization’s preparedness? Below are VeriCor products (with links) that correspond to ASPRs Healthcare Preparedness Capabilities. We focus on serving the preparedness community, so we know what you are up against. The HPP June 30th is right [Read More](https://www.vericormed.com/last-minute-hpp-options/)
+Category: [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/)
+Tags: [aspr](https://www.vericormed.com/tag/aspr/), [Hospital Preparedness Program](https://www.vericormed.com/tag/hospital-preparedness-program/), [hpp](https://www.vericormed.com/tag/hpp/)
+Posted on [December 19, 2013October 28, 2024](https://www.vericormed.com/hospital-preparedness-program-hpp-funding-resources/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [HPP Funding Resources](https://www.vericormed.com/hospital-preparedness-program-hpp-funding-resources/)
+[one-half-first]Hospitals are a critical element within the medical response system and work collaboratively with other health care providers/agencies to plan, prepare for and respond to the needs of victims of disasters, bioterrorism, and other public health emergencies. Hospitals must respond to increasing preparedness standards and activities, while simultaneously providing effective service to their communities. Making sure [Read More](https://www.vericormed.com/hospital-preparedness-program-hpp-funding-resources/)
+Categories: [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/)
+Tag: [Hospital Preparedness Program](https://www.vericormed.com/tag/hospital-preparedness-program/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

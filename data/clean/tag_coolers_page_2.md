@@ -1,0 +1,28 @@
+# Tag: coolers
+Posted on [August 16, 2017](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Vaccine Transport | Make Vaccinations Easier | Pan-Flu Medical Cache](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/)
+![Safe, Qualified Transport, Not Just for Vaccine](https://www.vericormed.com/wp-content/uploads/2017/07/cc-300x200.jpg)
+Vaccine TransportCoolers Perfect for Fall Flu ClinicsCan’t find your cooler? Don’t want to mess with ice? Want something lighter? Need something better? The VeriCor Cool Cube™ is growing in popularity for a number of reasons. But the main thing is…it works. Three super-cool features (the user-friendly case, the high-performance insulation, and the slick-removable panels) are [Read More](https://www.vericormed.com/vaccine-transport-make-vaccinations-easier-pan-flu-medical-cache/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [coolers](https://www.vericormed.com/tag/coolers/), [healthcare](https://www.vericormed.com/tag/healthcare/), [influenza pandemic](https://www.vericormed.com/tag/influenza-pandemic/), [Make Vaccinations Easier](https://www.vericormed.com/tag/make-vaccinations-easier/), [Pan-Flu Medical Cache](https://www.vericormed.com/tag/pan-flu-medical-cache/), [vaccine transport](https://www.vericormed.com/tag/vaccine-transport/), [VeriCor Mobile Vaccination Systems](https://www.vericormed.com/tag/vericor-mobile-vaccination-systems/)
+Posted on [May 4, 2017May 9, 2017](https://www.vericormed.com/get-rid-ice/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Get Rid of Ice!!!](https://www.vericormed.com/get-rid-ice/)
+Why Are You Still Using Ice to Keep Vaccine Cool? Here is a novel idea for transporting refrigerated vaccine: NEVER PUT ANYTHING BELOW 2°C IN A COOLER WITH VACCINE! (Even conditioned water/ice bottles.)I know, I know, I know…the standard practice is to use “properly conditioned” ice-packs. It is a method, but one that I want to challenge. [Read More](https://www.vericormed.com/get-rid-ice/)
+Category: [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [2016 CDC Guildelines](https://www.vericormed.com/tag/2016-cdc-guildelines/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Cool Cubes](https://www.vericormed.com/tag/cool-cubes/), [coolers](https://www.vericormed.com/tag/coolers/), [Qualified Cold Chain Management System](https://www.vericormed.com/tag/qualified-cold-chain-management-system/), [transport cooler](https://www.vericormed.com/tag/transport-cooler/), [vaccine clinic](https://www.vericormed.com/tag/vaccine-clinic/), [vaccine cooler](https://www.vericormed.com/tag/vaccine-cooler-2/), [vaccine safety](https://www.vericormed.com/tag/vaccine-safety/)
+Posted on [July 25, 2016October 28, 2024](https://www.vericormed.com/cdc-guidelines-2016/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [CDC Guidelines 2016](https://www.vericormed.com/cdc-guidelines-2016/)
+2016 CDC Vaccine Storage & Handling Toolkit – Top 10 Notables in the 2016 CDC Guidelines ***JUNE 2016 TOOLKIT DOWNLOAD*** The Centers for Disease Control and Prevention (CDC) recently released the 2016 Vaccine Storage & Handling Toolkit, their first since May 2014. Here are the top 10 notables for Public Health Departments: Store refrigerated vaccine between [Read More](https://www.vericormed.com/cdc-guidelines-2016/)
+Categories: [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [2016 CDC Guildelines](https://www.vericormed.com/tag/2016-cdc-guildelines/), [CDC](https://www.vericormed.com/tag/cdc/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [coolers](https://www.vericormed.com/tag/coolers/), [handling](https://www.vericormed.com/tag/handling/), [storage](https://www.vericormed.com/tag/storage/), [transporting](https://www.vericormed.com/tag/transporting/), [vaccine safety](https://www.vericormed.com/tag/vaccine-safety/)
+Posted on [April 4, 2016April 4, 2016](https://www.vericormed.com/flu-clinic-planning-tips/) by [Luther](https://www.vericormed.com/author/l-olson/)
+## [Flu Clinic Planning Tips](https://www.vericormed.com/flu-clinic-planning-tips/)
+Download the Flu Clinic Planning Tips – White Paper [one-half-first][wpfilebase tag=file id=164 tpl=thumbnail2 /][/one-half-first] [one-half]Three of VeriCor’s product lines will help simplify the entire vaccination process and prevent cold chain incidences: Vaccine Transporters – No ice. No electricity. No accidental freezing! Consistent 2-8°C guaranteed for 65+ hours! [clear] Nursing Workstations – Rolling workstations with integrated table, drawers, bins, [Read More](https://www.vericormed.com/flu-clinic-planning-tips/)
+Category: [Public Health](https://www.vericormed.com/category/public-health/)
+Tags: [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [coolers](https://www.vericormed.com/tag/coolers/), [vaccination kits](https://www.vericormed.com/tag/vaccination-kits/), [workstations](https://www.vericormed.com/tag/workstations/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/tag/coolers/)
+  * [1](https://www.vericormed.com/tag/coolers/)
+  * 2
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

@@ -1,0 +1,9 @@
+# Tag: Convert Your Supplies
+Posted on [June 1, 2018October 28, 2024](https://www.vericormed.com/cool-cube-faq-patient-surge-training-convert-your-supplies/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Cool Cube™ FAQ | Patient Surge Training | Convert Your Supplies](https://www.vericormed.com/cool-cube-faq-patient-surge-training-convert-your-supplies/)
+![Cool-Cube-FAQ pic](https://www.vericormed.com/wp-content/uploads/2018/07/Cool-Cube%E2%84%A2-FAQ-300x200.jpg)
+Cool Cube™ FAQA Question From ColleaguesQuestion: What maintenance do your PCM coolers require?Answer: Not much as it is a passive system (no moving parts). Wiping down the removable panels every once in a while is probably the most you will need to do with the Cool Cube™. Check out the short, less than 2-minute video, [Read More](https://www.vericormed.com/cool-cube-faq-patient-surge-training-convert-your-supplies/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Convert Your Supplies](https://www.vericormed.com/tag/convert-your-supplies/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Medical Cache Conversion](https://www.vericormed.com/tag/medical-cache-conversion/), [Patient Surge Training](https://www.vericormed.com/tag/patient-surge-training/), [PCM](https://www.vericormed.com/tag/pcm/), [Response-Friendly](https://www.vericormed.com/tag/response-friendly/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

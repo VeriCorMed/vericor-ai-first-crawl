@@ -1,0 +1,13 @@
+# Tag: Hospital Incident Command Station
+Posted on [March 14, 2018January 8, 2019](https://www.vericormed.com/high-performance-coolers-mobile-command-control-tmds-data-loggers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [High-Performance Coolers | Mobile Command & Control | TMDs (Data Loggers)](https://www.vericormed.com/high-performance-coolers-mobile-command-control-tmds-data-loggers/)
+![High-Performance-Coolers](https://www.vericormed.com/wp-content/uploads/2018/03/High-Performance-Coolers-300x200.jpg)
+High-Performance CoolersSimple & EffectiveTemp System: PCM (phase change material)* Optimum temperature stabilization without needing ice, electricity or buffering material.Insulation: VIP (vacuum insulated panels)* Maximum size-to-space ratio to decrease both bulk and weight. Case: fabric or hard-shell (depends on model)* Unique features on the outside of the case enhance the user experience.Mobile Command & ControlHospital Incident [Read More](https://www.vericormed.com/high-performance-coolers-mobile-command-control-tmds-data-loggers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Case](https://www.vericormed.com/tag/case/), [Data Loggers](https://www.vericormed.com/tag/data-loggers/), [High-Performance Coolers](https://www.vericormed.com/tag/high-performance-coolers/), [Hospital Incident Command Station](https://www.vericormed.com/tag/hospital-incident-command-station/), [Insulation](https://www.vericormed.com/tag/insulation/), [Mobile Command & Control](https://www.vericormed.com/tag/mobile-command-control/), [organize](https://www.vericormed.com/tag/organize/), [PCM](https://www.vericormed.com/tag/pcm/), [Phase Change Material](https://www.vericormed.com/tag/phase-change-material/), [Supplies](https://www.vericormed.com/tag/supplies/), [TMDs](https://www.vericormed.com/tag/tmds/), [vacuum insulated panels](https://www.vericormed.com/tag/vacuum-insulated-panels/), [VIP](https://www.vericormed.com/tag/vip/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/tag/hospital-incident-command-station/)
+  * [1](https://www.vericormed.com/tag/hospital-incident-command-station/)
+  * 2
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

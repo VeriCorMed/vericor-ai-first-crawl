@@ -1,0 +1,8 @@
+# Tag: PHEP BP3
+Posted on [June 15, 2022](https://www.vericormed.com/phep-bp3-deadline-one-cooler-multiple-uses-temperature-data-loggers/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [PHEP BP3 Deadline | One Cooler—Multiple Uses | Temperature Data Loggers](https://www.vericormed.com/phep-bp3-deadline-one-cooler-multiple-uses-temperature-data-loggers/)
+In this Bi-Weekly Issue In this biweekly issue: ✅ PHEP BP3 Deadline 🆒 One Cooler—Multiple Uses 🌡 Temperature Data Loggers 🦺 Mobile ER As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) PHEP BP3 Deadline June 30, 2022 An important date is just [Read More](https://www.vericormed.com/phep-bp3-deadline-one-cooler-multiple-uses-temperature-data-loggers/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cold Chain Compliance](https://www.vericormed.com/tag/cold-chain-compliance/), [Mobile Emergency Room](https://www.vericormed.com/tag/mobile-emergency-room/), [mobile surgical units](https://www.vericormed.com/tag/mobile-surgical-units/), [PHEP BP3](https://www.vericormed.com/tag/phep-bp3/), [Temperature Data Loggers](https://www.vericormed.com/tag/temperature-data-loggers/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

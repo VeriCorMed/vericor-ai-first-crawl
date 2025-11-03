@@ -1,0 +1,8 @@
+# Tag: Data Logger Purchasing
+Posted on [December 9, 2020](https://www.vericormed.com/dry-ice-ready-pcm-panels-data-logger-purchasing/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [Dry Ice Ready | PCM Panels | Data Logger Purchasing](https://www.vericormed.com/dry-ice-ready-pcm-panels-data-logger-purchasing/)
+![Dry ice in my Cool Cube](https://www.vericormed.com/wp-content/uploads/2020/10/dry-ice-in-my-cool-cube-300x300.jpg) In this Bi-Weekly Issue In this biweekly issue: 🦠 Dry-Ice-Ready! 🆒 Make the Switch 🦺 Data Logger Pro-Tip 📦 Convert a Mess As always, lots of information can be found on our website. Have a productive week! Learn | Practice | Improve A) Dry-Ice-Ready! Cool Cube™ Coolers...ready for action. The Cool Cube™ line of coolers [Read More](https://www.vericormed.com/dry-ice-ready-pcm-panels-data-logger-purchasing/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cube™ Coolers](https://www.vericormed.com/tag/cool-cube-coolers/), [Data Logger Purchasing](https://www.vericormed.com/tag/data-logger-purchasing/), [Dry-Ice](https://www.vericormed.com/tag/dry-ice/), [PCM panels](https://www.vericormed.com/tag/pcm-panels/), [Pro-Tip](https://www.vericormed.com/tag/pro-tip/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

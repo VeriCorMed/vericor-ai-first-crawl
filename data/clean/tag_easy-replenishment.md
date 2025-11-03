@@ -1,0 +1,9 @@
+# Tag: Easy Replenishment
+Posted on [July 18, 2017October 28, 2024](https://www.vericormed.com/cool-cube-edge-workstations-made-simple-easy-replenishment/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [The Cool Cube™ Edge | Workstations Made Simple | Easy Replenishment](https://www.vericormed.com/cool-cube-edge-workstations-made-simple-easy-replenishment/)
+![The Cool Cube Edge-for-thumbnail](https://www.vericormed.com/wp-content/uploads/2017/07/the-cool-cube-edge-for-thumbnail-300x300.png)
+The Cool Cube™ EdgePun IntendedCool Cubes™ have the edge when it comes to temperature sensitive transport:The extremely effective Surround-Care™ Insulation system has a patented edge abutment assembly process to increase resistance to abrasion and impact.The passive cooling system is comprised of PCM made from vegetable sources, which has the edge on other paraffin-based variations (vegetable-based [Read More](https://www.vericormed.com/cool-cube-edge-workstations-made-simple-easy-replenishment/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [Easy Replenishment](https://www.vericormed.com/tag/easy-replenishment/), [Replenishment](https://www.vericormed.com/tag/replenishment/), [The Cool Cube™ Edge](https://www.vericormed.com/tag/the-cool-cube-edge/), [workstations](https://www.vericormed.com/tag/workstations/), [Workstations Made Simple](https://www.vericormed.com/tag/workstations-made-simple/)
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)

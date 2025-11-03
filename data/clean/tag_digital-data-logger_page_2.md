@@ -1,0 +1,12 @@
+# Tag: Digital Data Logger
+Posted on [March 13, 2019January 2, 2020](https://www.vericormed.com/ddl-is-the-tmd-that-cdc-recommends-the-hot-and-cool-barrier-nursing-stations-on-wheels/) by [VeriCor Medical Systems](https://www.vericormed.com/author/vericor-medical-systems/)
+## [DDL is the TMD that CDC Recommends | The Hot and Cool Barrier | Nursing Stations on Wheels](https://www.vericormed.com/ddl-is-the-tmd-that-cdc-recommends-the-hot-and-cool-barrier-nursing-stations-on-wheels/)
+![DDL is the TMD that CDC Recommends-featured](https://www.vericormed.com/wp-content/uploads/2019/03/DDL-is-the-TMD-that-CDC-Recommends-featured.png) Hello, medical professionals! There's been a lot of talk about the difference between Cool Cubes™ and other "cold chain coolers." If cold chain management is part of your job, you will want to read the first section below. The next two sections also stay in the vaccination arena and deal with DDLs (digital data loggers) [Read More](https://www.vericormed.com/ddl-is-the-tmd-that-cdc-recommends-the-hot-and-cool-barrier-nursing-stations-on-wheels/)
+Categories: [Emergency Management](https://www.vericormed.com/category/emergency-management/), [Hospital Preparedness](https://www.vericormed.com/category/hospital-preparedness/), [Preparedness Resources](https://www.vericormed.com/category/preparedness-resources/), [Public Health](https://www.vericormed.com/category/public-health/), [VA Preparedness](https://www.vericormed.com/category/va-preparedness/)
+Tags: [CDC](https://www.vericormed.com/tag/cdc/), [Centers for Disease Control and Prevention](https://www.vericormed.com/tag/centers-for-disease-control-and-prevention/), [Cool Cube](https://www.vericormed.com/tag/cool-cube/), [DDL](https://www.vericormed.com/tag/ddl/), [Digital Data Logger](https://www.vericormed.com/tag/digital-data-logger/), [mobile medical](https://www.vericormed.com/tag/mobile-medical/), [PCM](https://www.vericormed.com/tag/pcm/), [temperature monitoring device](https://www.vericormed.com/tag/temperature-monitoring-device/), [TMD](https://www.vericormed.com/tag/tmd/), [Vaccination campaigns](https://www.vericormed.com/tag/vaccination-campaigns/), [vaccine storage](https://www.vericormed.com/tag/vaccine-storage/), [workstations](https://www.vericormed.com/tag/workstations/)
+## Posts pagination
+  * [Previous](https://www.vericormed.com/tag/digital-data-logger/)
+  * [1](https://www.vericormed.com/tag/digital-data-logger/)
+  * 2
+
+![ico-news](https://www.vericormed.com/wp-content/uploads/2018/07/ico-news.png)
