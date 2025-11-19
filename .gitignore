@@ -7,3 +7,8 @@ __pycache__/
 *.zip
 exports/links.jsonl
 exports/_private/
+# artifacts / archives
+*.zip
+
+# just in case that old path ever reappears
+ops/pages_clean/
