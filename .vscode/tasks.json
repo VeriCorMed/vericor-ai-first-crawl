@@ -1,11 +1,68 @@
 {
-  "version": "2.0.0",
+  "version": "2.2.0",
   "tasks": [
     {
-      "label": "Publish to GitHub",
+      "label": "Publish to GitHub (prompt)",
       "type": "shell",
-      "command": "ops\\publish_to_repo.bat",
+      "command": "powershell",
+      "args": [
+        "-NoProfile",
+        "-ExecutionPolicy",
+        "Bypass",
+        "-File",
+        "ops\\publish_to_repo.ps1"
+      ],
+      "options": {
+        "cwd": "${workspaceFolder}"
+      },
+      "group": {
+        "kind": "build",
+        "isDefault": true
+      },
+      "presentation": {
+        "reveal": "always",
+        "panel": "shared"
+      },
+      "problemMatcher": []
+    },
+    {
+      "label": "Refresh dataset (full)",
+      "type": "shell",
+      "command": "cmd.exe",
+      "args": [
+        "/d",
+        "/c",
+        "ops\\refresh_audit.bat"
+      ],
+      "options": {
+        "cwd": "${workspaceFolder}"
+      },
+      "group": "none",
+      "presentation": {
+        "reveal": "always",
+        "panel": "shared"
+      },
+      "problemMatcher": []
+    },
+    {
+      "label": "Refresh dataset (full) + Publish",
+      "type": "shell",
+      "command": "powershell",
+      "args": [
+        "-NoProfile",
+        "-ExecutionPolicy",
+        "Bypass",
+        "-Command",
+        "& { .\\ops\\refresh_audit.bat; .\\ops\\publish_to_repo.ps1 -Message \"chore: refresh + publish $(Get-Date -Format yyyy-MM-dd_HHmm)\" }"
+      ],
+      "options": {
+        "cwd": "${workspaceFolder}"
+      },
       "group": "build",
+      "presentation": {
+        "reveal": "always",
+        "panel": "shared"
+      },
       "problemMatcher": []
     }
   ]
